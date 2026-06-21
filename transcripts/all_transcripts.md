@@ -11,3 +11,9 @@ Transcript - sadness is actually conversation sadness is actually conservation a
 
 ---
 
+Title - captioned_VID_20260530_111103
+
+Transcript - I just found out that there was no single word for happiness and pleasure combined so I just made the word allies and it is the word which explains everything related to happiness and pleasure so whenever you feel something good where whatever the thing is going on which increases your survival chances you get either happiness or pleasure which means you get a list and when you feel the allies moment this is where the your survival chances are increasing like you meet someone you like or let's say you want something you got something better you upgraded you made make muscles you made money everything that is just feel good that it just feel good it comes in allies and it is just going to increase your survival chances and that's why it feels good
+
+---
+
