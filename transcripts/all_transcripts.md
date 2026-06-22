@@ -485,3 +485,9 @@ Transcript - If other people are ahead of you, then it's a great news because th
 
 ---
 
+Title - If The System Is Wrong.......
+
+Transcript - if you think system is wrong then you should find loopholes in it to help it work with you instead of against you like the tax planners do with the taxes and they avoid taxes on millions of dollars by just studying the system so you can do it
+
+---
+
