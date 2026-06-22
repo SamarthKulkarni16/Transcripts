@@ -437,3 +437,9 @@ Transcript - You get all the bad emotions like anger, sadness, frustration, anxi
 
 ---
 
+Title - How To Understand Things Better Than 99_ People
+
+Transcript - If you want to understand everything clearly then just know about these four questions which are what is it, why it exists, what are the things in favor and what are the things in unfavor of it. And if you understand these four questions about it then you will understand that concept better than 99% of them.
+
+---
+
