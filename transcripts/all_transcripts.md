@@ -311,3 +311,9 @@ Transcript - Insults are just free feedback. You can either use it or get used b
 
 ---
 
+Title - Generic Topic But Non - Generic Advice.
+
+Transcript - So if you want to develop muscle, then the only thing you have to focus on is just progressive overload and a good recovery. And that's it. Just forget all the tips and tricks, hacks, this and that. And just focus on giving it more work than you can and giving it more rest so you can do more work. And this is basically it.
+
+---
+
