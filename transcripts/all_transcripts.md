@@ -563,3 +563,9 @@ Transcript - 🎵
 
 ---
 
+Title - It Will Make You Feel Better.
+
+Transcript - most of your anger and dissatisfaction will go away if you just start using gratitude and the way i like to do is i don't like to write it down or it's just boring then what i like to do is just i will feel all the gratitude when i am doing something so if i am eating food then i will feel that i am eating food and my stomach is getting filled and just the enjoyment and the pleasure the praise of small things is really good so if you are just sleeping don't just go to bed and sleep just go to bed and feel the comfort you are getting from that bed and sleep and if you do this daily then you will be more happy and less sad so try it and see
+
+---
+
