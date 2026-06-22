@@ -89,3 +89,9 @@ Transcript - Actually, this is not the first day because in the last 3 days, I h
 
 ---
 
+Title - Challenge For You.
+
+Transcript - Focusing on the present is very hard because it is the least stable time in all timelines. Most people just focus on their past things, the past good things, the past bad things and they just keep living in that memory and the main reason of it is just because it is the most stable time in all three times like past, present, future. The past is the most stable because you know what happened and it is just there. Even if you look at it after a million years, it will be still there. So it's just more stable and that's why most people just look at it. And few people look at the future, they decide what they are going to do and they plan and they work accordingly because it is comparatively more stable than the present because you can plan according to it and you can work according to it. Let's say you plan to go to a trip to Hawaii and just enjoy a vacation, then you have a timeline where you can just work and just do the things and you can plan things and then accomplish your goals. This is why some people focus on the future and which is a good thing, but very, very few people like one in thousand or something people focus on the present because it is the hardest because it is not something that is stable. It is the most unstable time. It's just passing by every second and you don't know. So you can't just plan and do everything in that second. So but living in the present is going to be best because you are not getting bothered by anything in the past or future and you can just be stable. So if you want a hard challenge, then try living in the present. And see you.
+
+---
+
