@@ -605,3 +605,9 @@ Transcript - you wanted something and you worked very hard and got it and now yo
 
 ---
 
+Title - It_s Tried And Tested.
+
+Transcript - If everything's going wrong, then just focus on developing yourself. And trust me, I tried it and it worked amazingly well. So just do it.
+
+---
+
