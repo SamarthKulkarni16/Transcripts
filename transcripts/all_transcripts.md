@@ -419,3 +419,9 @@ Transcript - after consuming thousands of hours of content on how to become succ
 
 ---
 
+Title - How To Blame.
+
+Transcript - Most people don't know how to blame because they just blame the uncontrollable things but in reality you have to blame the controllable variable.
+
+---
+
