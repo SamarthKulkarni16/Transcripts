@@ -407,3 +407,9 @@ Transcript - if you want to create a habit in 2026 what you should do is have on
 
 ---
 
+Title - How To Actually Make Money In 2026
+
+Transcript - if your goal for 2026 is making a million dollar or any sum of money then you should just refresh the term that i want to make a million dollar in 2026 with the actual term which is i want to provide value worth million dollar in 2026 and the reason you need to do it is because you can't control the vote which is getting a million dollars you can't control getting a million dollar but you can what you can actually do is just providing the million dollar worth value which will help you in your life because most of the time we just focus on output calls but it's very useless to do because all we should do is just focus on inputs and outputs will come automatically because it is the law of nature that everything is bad so if you provide a value then you will get paid this is how it is so refresh the term with getting a million dollar or any sum of money um
+
+---
+
