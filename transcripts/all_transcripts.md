@@ -83,3 +83,9 @@ Transcript - Before scrolling further, just take a deep breath and you can conti
 
 ---
 
+Title - Building @innercraftdojo
+
+Transcript - Actually, this is not the first day because in the last 3 days, I have already DMed 150 people. I have also secured the name for the InnerCraft Dojo on every social media platform. Right now, my goal is simple. I want people to try my system so I can prove it that it actually works. So I started inviting people and out of those 150 DMs, no one had joined it. I know it hurts but this is the part of game so we are going to keep going. And if you want to be a part of my InnerCraft Dojo first experience, then just DM me and yeah, see.
+
+---
+
