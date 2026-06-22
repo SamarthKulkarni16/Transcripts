@@ -383,3 +383,9 @@ Transcript - use comparison to your advantage if you want to be like other peopl
 
 ---
 
+Title - Here Is The Formula.
+
+Transcript - Oh
+
+---
+
