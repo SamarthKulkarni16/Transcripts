@@ -11,3 +11,9 @@ Transcript - Ants made me quit processed food like yeah actually so when I was i
 
 ---
 
+Title - Automations.
+
+Transcript - AI automations and things are going very viral and popular but one thing I have to mention and I want to mention because I have done many automations is that when you want to make an automation you have to make a manual workflow which works perfectly under any condition you have to stress test it if it is working manually perfectly then you can automate it because if you just automate it without stress testing it and we're just waiting in that and it will not not work and it will break at some point and it will demotivate
+
+---
+
