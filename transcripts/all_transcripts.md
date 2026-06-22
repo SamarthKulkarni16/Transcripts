@@ -791,3 +791,9 @@ Transcript - Thank you for watching.
 
 ---
 
+Title - _The Want Cycle_.
+
+Transcript - and this never ends like you want something so you take action like i want this so i am going to do this to get this result and you get this result like congratulations and then what happens is you just feel like oh i can do something better i can reduce my work energy i can reduce my time i can reduce the friction in the work so i can get better and you want to become better and the want to become better is what create the different one and this just goes on cycle and it just never ends
+
+---
+
