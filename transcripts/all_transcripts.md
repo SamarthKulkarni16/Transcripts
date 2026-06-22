@@ -551,3 +551,9 @@ Transcript - Bad decision making comes from the wrong knowledge. So I use these 
 
 ---
 
+Title - Is your version better or worse than you_
+
+Transcript - Whenever I'm unsure of whatever I'm doing is good or bad and I'm actually making progress or not it's just I think of one guy who is in the parallel universe and who is just same like me but who is opposite of me so if I'm doing something good he's doing something bad if I'm sleeping he's working if I am eating healthy food he's eating junk food etc and all I think is is that guy better than me and if he is better than me then I have to work and I have to get better than him and if he's worse than me then I'm doing actually great and I just have to keep going
+
+---
+
