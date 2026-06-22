@@ -629,3 +629,9 @@ Transcript - Everything happens with your consent. Everything happens because yo
 
 ---
 
+Title - Jealousy Is Not A Sin.
+
+Transcript - jealousy is not bad and everyone says that don't be jealous jealousy is a sin but no it's not the case and actually you get jealous because it is just a survival instinct so when someone have something better than you let's say they have a better car than you then you get jealous because they have a better resources and your brain is just telling you that you have less resources so the chances of your survival is less and that's why everyone feel jealousy you
+
+---
+
