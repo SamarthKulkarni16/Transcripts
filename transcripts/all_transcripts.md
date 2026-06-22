@@ -413,3 +413,9 @@ Transcript - if your goal for 2026 is making a million dollar or any sum of mone
 
 ---
 
+Title - How To Become Successful_
+
+Transcript - after consuming thousands of hours of content on how to become successful one thing that i have learned is that how to become successful is the worst question you can ask and the main reason is that it is not a particular question and it is a very normal question like everyone's success is different from others for me it's different for you it's different for someone else is different like for example for me it's something like having enough money to do whatever i want without having tension of money for someone it's going to travel the world for someone is having a billion dollar business and just enjoying the business and there are very different things everyone wants it's not the right question and there are some common points like try to work hard and do it so much that it will be unreasonable for fail but every rule like this you know already and there is no point wasting time in searching those things so what you should do is first define your goal and then next step is to make sure that you are satisfied with what you do and then you determine what will be your goal and what will be your goal so you will know what and that will all So what is success to you? Is it traveling? Is it dancing? Whatever it is, just focus on that and then search topics accordingly and then learn and apply and then you will get the results. So try this and see.
+
+---
+
