@@ -755,3 +755,9 @@ Transcript - I had a maths teacher in my 10th class who was like one of the wors
 
 ---
 
+Title - Lesson From Pok+¬mon Horizon.
+
+Transcript - So last month I was watching Pokemon Horizon for like no reason just doing time pass and what I learned from it was that whenever you watch an anime or tv series or cartoon which goes on with progression you will notice that they get success very fast like you watch five episodes and they are literally like different in the different world and why this happens is because they do a lot of things in that time so every episode is like one or two days in the anime or the show and they do a lot of things like the morning comes and they do their work and in the afternoon they are just exploring the world talking to people and doing things and that's how they get success so fast so and I think this will work in your life too so if you want fast success then best thing you can do is start doing making videos and making videos and making videos and making videos and making videos and many things in one day and you will start seeing a rapid progression so try this and subscribe for more and see you
+
+---
+
