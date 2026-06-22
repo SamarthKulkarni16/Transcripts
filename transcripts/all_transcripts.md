@@ -545,3 +545,9 @@ Transcript - so this method can save you thousands of hours and at least will in
 
 ---
 
+Title - Invest In These 4 Questions.
+
+Transcript - Bad decision making comes from the wrong knowledge. So I use these four questions to understand everything to make my decision, which are what is it, why it exists, what are the favorable things and what are the unfavorable things.
+
+---
+
