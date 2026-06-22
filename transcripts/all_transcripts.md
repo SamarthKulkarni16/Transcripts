@@ -293,3 +293,9 @@ Transcript - The financial freedom ratio which will actually help you to become 
 
 ---
 
+Title - Find Substitute.
+
+Transcript - When you are trying to get rid of something in your life, finding its substitute will make it lot lot easier because whatever it is, it's a habit or a function or your work or your relation, anything, if you can find the substitute, it makes easier because when there is no substitute, you just get rid of that thing and it becomes a blank area where you just don't know what to do. So you just miss whatever you had and you start to go back. But if you have substitute for it, then there is no need for going back and you can do different thing. So if you can't find substitute for whatever you are trying to get rid of, just do it and follow for more and see.
+
+---
+
