@@ -599,3 +599,9 @@ Transcript - Stop making big deals out of small things and I learned this from m
 
 ---
 
+Title - It_s Not Problem.
+
+Transcript - you wanted something and you worked very hard and got it and now you are just looking for the next thing and it is not an issue or it is not a lack of gratitude but it is actually how your brain is wired to do things. So instead of feeling lost and instead of feeling sad and insufficient just focus on fixing problems which will make you happy and which will make you keep going on.
+
+---
+
