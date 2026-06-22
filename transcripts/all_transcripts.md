@@ -773,3 +773,9 @@ Transcript - nowadays everyone want to become better everyone want to become gre
 
 ---
 
+Title - Money Money.
+
+Transcript - then the third question we have to ask is what are the favorable things of it and what actually makes money so everyone wants to make money but very few people understand how to make money so in order to make money the thing you need is providing value so whatever you do you do online business you do a job you do shopping you do whatever in the world you just have to provide value and it will make you money and that's why most people get confused because they try to do the easy things they try to do shortcuts but the only thing you need to understand in order to make money is just to understand are am i providing value and the more value you provide the more money
+
+---
+
