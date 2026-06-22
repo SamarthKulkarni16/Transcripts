@@ -263,3 +263,9 @@ Transcript - Our emotions are just signal of what is happening, we should just l
 
 ---
 
+Title - Every Book Skipped It.
+
+Transcript - I have read lot of books like this on mindset and things and lot of them are pretty good but none of them actually taught me one thing which is goal is not to remove any problem but it is to actually get in better problems because you can optimize yourself in the most disciplined way but if you are in the wrong direction then you are just going faster wrong and this is wrong because it is wrong so the question isn't am I solving the problem but it is am I solving the right problem
+
+---
+
