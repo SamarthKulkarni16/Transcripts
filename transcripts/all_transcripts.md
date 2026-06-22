@@ -377,3 +377,9 @@ Transcript - If you hear more thank you than you say, then congratulations, you 
 
 ---
 
+Title - Here Is How To Use COMPARISON To Your Advantage
+
+Transcript - use comparison to your advantage if you want to be like other people then just look at them what they are doing do the same and you will be the same so it's very easy
+
+---
+
