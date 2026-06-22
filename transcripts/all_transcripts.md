@@ -287,3 +287,9 @@ Transcript - here is how to you can you here is how you can use conflicts to you
 
 ---
 
+Title - Financial Freedom Ratio.
+
+Transcript - The financial freedom ratio which will actually help you to become financially free no matter how much money you make. And the ratio is very simple to understand. It's just the ratio of expenses is to investment. And this is the money which come out of your income and how much you spend and how much you invest. And our main goal is to just keep the expense as low as possible and investment as high as possible. And if you can make the ratio in such a way that your investment numbers are more than your expenses, then you can become financially free. So yeah, use it and see.
+
+---
+
