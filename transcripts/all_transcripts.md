@@ -155,3 +155,9 @@ Transcript - When everything is uncontrollable, then just control on what you ar
 
 ---
 
+Title - Core 4.
+
+Transcript - these are core four which derives every human action which is emotion reaction action and environment and if you understand all of these then you will give a greater understanding of humans than most of the people and if you want to understand how then just make sure to follow and i will teach you how to do it
+
+---
+
