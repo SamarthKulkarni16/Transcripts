@@ -587,3 +587,9 @@ Transcript - 🎵
 
 ---
 
+Title - It_s Just Common Sense.
+
+Transcript - One thing I found out is that common sense actually works the best if you just focus like every big influencer like you take for example Alex Hormozy then he is content he is just always saying that just work harder and it's not something like a different thing he is telling or something no it's like just common sense if you work harder you will get better. But no one is doing it and you can look at many influencers like you can look at Luke Belmar and he is just telling that as a man think so easy that this is his main thing you know that this is just the right thing because you think then you do that things and yes you become that so it's just like common sense but you have to just know most common people don't do the common sense things and that's why they remain common like that's the thing I found out. And so if you. Want to get better and if you find something that is that is just the common sense then you can just apply it and just get better like in my channel I'm just always telling you that you have to give something in order to get something and this is also common sense but very few people use it so if you want to get better just try to use common sense as much as possible and follow for more and see you.
+
+---
+
