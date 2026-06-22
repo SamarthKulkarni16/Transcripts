@@ -647,3 +647,9 @@ Transcript - Many times in your life you really don't want to do something that 
 
 ---
 
+Title - Just Provide Value.
+
+Transcript - I want you to stop working hard, working smart, making decisions, trial and errors, taking risks, morning routines and everything and just focus on providing value because this is what matters. You might be working for 12 hours and you might not providing any value and not getting results and that's why most people get demotivated and things but if you just remove everything and just focus on providing value, you will receive value because this is how the science works. This is how the nature works. This is how everything works. It is Newton's law that every action has its equal and opposite reaction. So just focus on providing value and you will start receiving value. So yeah, see you.
+
+---
+
