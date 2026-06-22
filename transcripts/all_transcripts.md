@@ -161,3 +161,9 @@ Transcript - these are core four which derives every human action which is emoti
 
 ---
 
+Title - Create Your Own Path.
+
+Transcript - Poor people think that let's see what happens and rich people think that let's see what we need to do. So stop relying on the fate and just start creating your own actions and yeah, see you.
+
+---
+
