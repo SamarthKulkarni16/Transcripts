@@ -95,3 +95,9 @@ Transcript - Focusing on the present is very hard because it is the least stable
 
 ---
 
+Title - Cheat Code That Actually Works.
+
+Transcript - Thank you for watching.
+
+---
+
