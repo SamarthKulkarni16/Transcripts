@@ -17,3 +17,9 @@ Transcript - AI automations and things are going very viral and popular but one 
 
 ---
 
+Title - Baseline Emotion.                #perspective #
+
+Transcript - Success is not motivation, it's returning to your baseline emotion.
+
+---
+
