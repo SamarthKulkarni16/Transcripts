@@ -395,3 +395,9 @@ Transcript - No matter which religion you belong to, the highest form of worship
 
 ---
 
+Title - How I Set My Goals For 2026.
+
+Transcript - how I set my goals for 2026 and you can do it too so what I do is just simple that I don't have any output goals but I have only input goals and what I mean by that is my goal is for example one goal of mine is getting in better shape so my goal isn't in just to get a better physique but what I wrote in my goal list is working out every day eating healthy and taking good rest and this helps because what I am doing is I am not just saying that I want to get better physique but because if I say that I want a better physique then I can't do it in one month two month and I will just give up because this is not what I am getting and this is something I want but this is not an action I can do so what is action is working out eating healthy and sleep and if I do this for a year then I will have a better physique so you can do it too by just simply changing your output goals into input goals and you will see the progress so try this and see
+
+---
+
