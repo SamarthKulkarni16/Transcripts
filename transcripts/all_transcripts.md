@@ -317,3 +317,9 @@ Transcript - So if you want to develop muscle, then the only thing you have to f
 
 ---
 
+Title - Get In Shape In 2026.
+
+Transcript - if your goal for 2026 is to get in shape then you should change it from getting in shape to just working out daily and eating healthy food and resting properly because the getting in shape goal is something that is output and you can't do output that's why most people just give up because they don't say result in one two months and this is very unreal to get one two months results unless you are on steroids or something but if you actually want to get healthy and get in better shape then your goal should be just to eat healthy workout daily and this should be on your goal list and you will do it because this is something you can do and so just do it and yeah see
+
+---
+
