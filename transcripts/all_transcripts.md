@@ -737,3 +737,9 @@ Transcript - when you want to learn something doing it will make you actually be
 
 ---
 
+Title - Lesson From @leilahormozi
+
+Transcript - I learned about baseline emotion from Laila Harmozzi and it works really great it's just focused on whenever you are not feeling like working just get on the mood in which you work the best
+
+---
+
