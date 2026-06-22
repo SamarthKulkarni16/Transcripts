@@ -65,3 +65,9 @@ Transcript - what if I tell you there is an actual way to use your procrastinati
 
 ---
 
+Title - Blame What You Can Control.
+
+Transcript - Don't blame yourself, don't blame other people, just blame what you can control.
+
+---
+
