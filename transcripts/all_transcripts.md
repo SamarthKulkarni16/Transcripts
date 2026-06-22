@@ -653,3 +653,9 @@ Transcript - I want you to stop working hard, working smart, making decisions, t
 
 ---
 
+Title - Just Think Like A Chess Player.
+
+Transcript - If you are doing something for the first time or you really want to do something or you really don't want to do something in these three cases, you should just think like a chess player. Because when you play chess, you don't just go and choose your moves. You think and you count all the possibilities and with the most favorable possibility, you continue to play. And that's how it is going to work because let's say in the first example, when you are doing something for the first time, let's go with the example of you are going to party with your friends and they are having alcohol. And if you are going to have alcohol for the first time and you count the possibilities, the chances of you getting the addiction of alcohol is high. So you will not get that addiction. And if you really want to do something, for example. You want to scroll on TikTok or something. And if you count the possibility, you will understand that it's just a random dopamine hit and you will later regret it. So you won't do it. And when you really don't want to do something like eating healthy or going to work out like it's the time, but you really don't want to do it. But if you count all the possibilities which can happen, you will just know that if you don't do this, the thing going to happen is you are going to break. Break that habit or you are going to break the discipline. And if you do the thing, you will get more confidence and you will get into that discipline. So you will do it. So when you're in one of these three situations, just think like a chess player and see you.
+
+---
+
