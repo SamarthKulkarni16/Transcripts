@@ -239,3 +239,9 @@ Transcript - Stop using the word trying to because it makes you feel less confid
 
 ---
 
+Title - Don_t think who are you or what you want to say
+
+Transcript - 🎵 🎵
+
+---
+
