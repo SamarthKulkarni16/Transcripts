@@ -29,3 +29,9 @@ Transcript - If mood blocks your work, then don't just fix your mood, just retur
 
 ---
 
+Title - Be Organized.
+
+Transcript - One of the really good habits that I have is being organized and the habit you will find in any successful person whether it's a sports person, athlete or a businessman, entrepreneur anything you will find that they are super organized and it doesn't mean that you are going to have like folders and files and there are people who are working like or AI you are automating like this can help but the simple meaning of organization is being organized. It doesn't mean just that keeping those things which are required in those place which you can easily access so there can be a column for your stationery a column for your clothes and just be organized just don't put anything at any place like there is a pen pencil on your bed and your clothes are on dining table like this may sound like fun or something but in long term it's not going to feel really good and it just drop the energy but if you start being organized then you will be able to do it. Then the things become easier to access because you know where it is and it can be in anything it can also be in your mobile phone your laptop your work that you can create just files and just put it and at first it look like a lot of work because we haven't organized anything but as you keep going it becomes easier and easier and once everything is organized then your task is just to keep it as it is and it's not that hard so try this and see.
+
+---
+
