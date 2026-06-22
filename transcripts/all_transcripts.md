@@ -491,3 +491,9 @@ Transcript - if you think system is wrong then you should find loopholes in it t
 
 ---
 
+Title - If The Timing Was Wrong......
+
+Transcript - If you think that the timing was wrong, then next time just be on time.
+
+---
+
