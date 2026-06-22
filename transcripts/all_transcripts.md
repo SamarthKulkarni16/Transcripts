@@ -497,3 +497,9 @@ Transcript - If you think that the timing was wrong, then next time just be on t
 
 ---
 
+Title - If You Are Giving Good But Not Receiving Good, 
+
+Transcript - If you are giving everyone everything good but still not getting what you want from others then the problem might be you because you are not giving what they want. And this is the basic example of the law of balance that you get what you give. And if you are thinking that oh I am always happy and I am giving everything, I am the best and I am always smiling even if I have pain and there are still people complaining and not giving me the happiness so the best thing you can do is just go to them and ask what they want because if you are always smiling and making jokes and they are not giving you what you want then they might want something different like they want you to be serious at serious moments they want you to be sad at sad moments or it can be anything. So the best thing you can do is just go to them ask what they want and do it and you will get what you want. So follow for more and see you.
+
+---
+
