@@ -329,3 +329,9 @@ Transcript - To get rid of any addiction, just do this one thing, which is first
 
 ---
 
+Title - Getting Distracted Is Relief.
+
+Transcript - Getting distracted is not a problem, it is a relief you see because something feels uncomfortable. And so if you are scrolling then it doesn't mean you are lazy, but it means that the work you are going to do is more discomfortable so you choose comfort. So instead of fighting that I don't want to watch reels but I don't want to work this and that, just stop creating that friction and what you actually need to do is just focus on how you can make your work so comfortable. And make less friction in your work so you will work instead of scrolling.
+
+---
+
