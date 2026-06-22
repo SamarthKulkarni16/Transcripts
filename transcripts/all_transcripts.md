@@ -677,3 +677,9 @@ Transcript - What do you guess? C'est muy copen, testa, pina, viva, pesta Noi j√
 
 ---
 
+Title - Keep Clean.
+
+Transcript - One of the most underrated skill that I know is cleaning your room and if you look at every billionaire, millionaire or every sports person or anything who is just a celebrity or just successful in their life, you will notice that one thing that they have common is they have a clean room. Like I never see someone successful who has just a messy room and you can just do whatever you have like it doesn't require you have a huge mansion and you just put decorations and everything. This doesn't just come in that category. Only thing you need to do is just wherever you are living in, just try to clean that place and just be organized and you will see the results. So yeah, see you.
+
+---
+
