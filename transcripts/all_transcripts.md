@@ -41,3 +41,9 @@ Transcript - Confused people do the overthinking and smart people just use 4 que
 
 ---
 
+Title - Be Wise.
+
+Transcript - If you know things, then you are intelligent. But if you use them, you are wise. So, be wise.
+
+---
+
