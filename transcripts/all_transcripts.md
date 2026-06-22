@@ -389,3 +389,9 @@ Transcript - Oh
 
 ---
 
+Title - Highest Form Of Worship Is....
+
+Transcript - No matter which religion you belong to, the highest form of worship you can do to your God is simply using their teachings to become better in your life. So just do it and see.
+
+---
+
