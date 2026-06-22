@@ -185,3 +185,9 @@ Transcript - never just go for the summaries because many times like you can be 
 
 ---
 
+Title - Do This When Someone Says Something Bad To You.
+
+Transcript - if someone says something bad to you then here is what you should do the first two things you shouldn't do is first don't get angry like bro chill he's not attacking you and he's just trying to say his point and second thing you shouldn't do is just accept it as reality and move away like bro it's just he's just telling you something that what he thinks it's not the reality it's just one perspective out of the million so you shouldn't feel bad or feel sad because he said something so what you should do instead is simple just ask him one question why and this will help because it will help you open the conversation and you can talk more and he will actually give you reason and it might actually make sense sometimes like let's say if he says that bro your dressing sense sucks then you can ask why you think that and he will tell you that you should try this this is trending and you are not wearing it and this and that and then you can actually upgrade and use it and you can become better by it so when someone does this try what i said and yeah see
+
+---
+
