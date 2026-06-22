@@ -47,3 +47,9 @@ Transcript - If you know things, then you are intelligent. But if you use them, 
 
 ---
 
+Title - Best Relationship_Connection Hack.
+
+Transcript - This one relationship hack will make you so much better in connecting with people whether it's some president or a gang member or a student or a teacher or your friends anyone you can just connect to them very easily if you just do this one thing and which is better than everything like manipulation, persuasion and every communication skills they are good but these things will guarantee you the results and the thing which is going to give you that many things is just giving them what they want not what you want just giving them what they want say they want you to be funny just be funny or if they want you to be strict just be strict in front of them and this will help you to give them what they want and then you will get what you want because it's the balance of the universe so if you want to form a connection with someone just give them what they want and they will give you what you want so try this and see.
+
+---
+
