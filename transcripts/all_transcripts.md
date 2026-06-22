@@ -557,3 +557,9 @@ Transcript - Whenever I'm unsure of whatever I'm doing is good or bad and I'm ac
 
 ---
 
+Title - It Took 6 Hours.
+
+Transcript - 🎵
+
+---
+
