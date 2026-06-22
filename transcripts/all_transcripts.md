@@ -269,3 +269,9 @@ Transcript - I have read lot of books like this on mindset and things and lot of
 
 ---
 
+Title - Every Situation Is Win Win.
+
+Transcript - every situation is a win-win situation you just have to think that way and you just have to change your perspective according to it and it will become a win-win situation and if there is a situation which you don't know how it is win-win situation or something you can just tell me in the comments and i will reply to you as soon as possible so try this and see
+
+---
+
