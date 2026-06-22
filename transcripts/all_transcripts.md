@@ -149,3 +149,9 @@ Transcript - Music
 
 ---
 
+Title - Control The Blame.   #perspective #blame
+
+Transcript - When everything is uncontrollable, then just control on what you are going to blame.
+
+---
+
