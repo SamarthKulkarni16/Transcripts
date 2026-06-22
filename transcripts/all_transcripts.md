@@ -35,3 +35,9 @@ Transcript - One of the really good habits that I have is being organized and th
 
 ---
 
+Title - Be Smart.
+
+Transcript - Confused people do the overthinking and smart people just use 4 questions to understand everything, which is what is it, why it exists, what supports it and what is against it. Let's see.
+
+---
+
