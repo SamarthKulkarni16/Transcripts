@@ -305,3 +305,9 @@ Transcript - Hi, it's Amartya Kulkarni from India and from today we are going to
 
 ---
 
+Title - Free Feedback.
+
+Transcript - Insults are just free feedback. You can either use it or get used by it. It's your choice.
+
+---
+
