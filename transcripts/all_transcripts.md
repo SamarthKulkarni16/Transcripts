@@ -701,3 +701,9 @@ Transcript - Hey, got a mic, turn to a million, and we are rich, that's just how
 
 ---
 
+Title - Know The Difference.
+
+Transcript - When you were with them, then you have a lot of problems to solve, like what to say to them, when to meet them, what to do to them. And you were full busy in that particular conflict. But when they actually left you, then everything just gone. All your problems, all your issues, they were just gone. And then your brain starts feeling empty. And this is when the actual change happens. And this is when everything starts to fall apart. Everything starts to feel depressed and sad. And, but your brain is just solving the wrong conflict. So the best thing that I did, and you can do it too, and you need to do it, is just get into better conflicts, making yourself better, so you will be independent.
+
+---
+
