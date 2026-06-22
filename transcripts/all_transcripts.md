@@ -173,3 +173,9 @@ Transcript - Day 1 of building innercraft dojo and actually this is not the firs
 
 ---
 
+Title - Destiny Is Nonsense.
+
+Transcript - if you hear something on the internet about your destiny or if it is in your future or whatever then just don't focus on it because it just creates a passive feeling that if i deserve it then i will have it but this is not what actually happened because you see many successful people there is a reason they are putting those hard work and their effort to get what they want because they know that there is no such thing such as destiny and you have to do what you want to do to get what you want so just do it
+
+---
+
