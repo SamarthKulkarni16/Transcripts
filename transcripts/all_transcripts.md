@@ -353,3 +353,9 @@ Transcript - When I tried to substitute one habit from another like changing fro
 
 ---
 
+Title - Habits Are Foundation.
+
+Transcript - I fixed my habits and my life followed the pattern.
+
+---
+
