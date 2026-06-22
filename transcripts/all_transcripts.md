@@ -101,3 +101,9 @@ Transcript - Thank you for watching.
 
 ---
 
+Title - Check Your Time Expense. #timeaccounting
+
+Transcript - If the time is spent without long term gains then it is a time expense.
+
+---
+
