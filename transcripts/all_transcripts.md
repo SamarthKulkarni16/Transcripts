@@ -209,3 +209,9 @@ Transcript - What I have noticed is that losers will find any reason to not doin
 
 ---
 
+Title - Don_t Do Anything When You Are In High Mood.
+
+Transcript - Whenever you are in a high mood, for example it can be sadness, happiness, frustration, anger, anything, just don't do anything and the worst thing you can do is making a decision because at that moment it feels so right to do whatever you want to do and make those decisions but as the time goes on you started regretting it and it becomes worse and worse and you can't do anything about it so the best thing you can do is just sit and relax and enjoy the moment whatever it is, if you are happy just be happy, if you are sad just be sad like enjoy the pain and pleasure whatever the emotion is and yeah see you.
+
+---
+
