@@ -125,3 +125,9 @@ Transcript - if you want to improve your communication skills then you can go to
 
 ---
 
+Title - Comparison Is The Roadmap.
+
+Transcript - Don't look at comparison as feeling small but just look at the comparison as a tool to reverse engineer your growth and just follow the map to where you want to go.
+
+---
+
