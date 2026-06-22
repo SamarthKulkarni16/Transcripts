@@ -671,3 +671,9 @@ Transcript - I can't see at all, even if I could it'd all be grey
 
 ---
 
+Title - Just substitute your current life with what you
+
+Transcript - What do you guess? C'est muy copen, testa, pina, viva, pesta Noi já conhece C'est muy copen, testa, pina, viva, pesta
+
+---
+
