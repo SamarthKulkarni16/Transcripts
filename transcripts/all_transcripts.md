@@ -431,3 +431,9 @@ Transcript - Find the mood you work best in and that's your baseline emotion.
 
 ---
 
+Title - How To Never Get Wrong Emotions.
+
+Transcript - You get all the bad emotions like anger, sadness, frustration, anxiety, etc. when things get out of control, like when things get out of hand, like you want something but it's not happening or things are not going according to plan, this is when these types of emotions take place. So, instead of thinking how can I get rid of these emotions, just think how can I get more control over things and you will get rid of all the bad emotions. So subscribe for more and see you.
+
+---
+
