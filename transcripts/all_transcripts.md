@@ -743,3 +743,9 @@ Transcript - I learned about baseline emotion from Laila Harmozzi and it works r
 
 ---
 
+Title - Lesson From Last Week......           #lesson #
+
+Transcript - So last week I had some homework to do so I just set up to do the homework but I don't know why I just started thinking about it that it's not worth doing it like it's not worth time and it's not what I want to do in my life and it's just scam and you shouldn't do study you should go and try the things to make money and this and that and I just I just went to think of this for the whole half an hour and then after passing the half hour I looked at the clock and I was like what the heck like why did I wasted so many time and I decided to do it. Just do it and just hear the word and when I started doing it it just took me 10 minutes to do it so the time of doing it was three times less than the time of I was thinking so the lesson I learned was that when you start thinking about doing something then doing it is actually a lot better and lot easier than just thinking so if you find yourself just thinking about something just stop and just go and do the thing and then you will see the progress so try this and see.
+
+---
+
