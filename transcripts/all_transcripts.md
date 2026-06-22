@@ -533,3 +533,9 @@ Transcript - Imagine this, there is a homeless guy who just thinks that if he ge
 
 ---
 
+Title - Improvement Hack.
+
+Transcript - When you are trying to be better at something, having someone who gives you feedback is really important and it is a really good cheat code you can have which will actually increase your abilities and you will become better really fast than just doing it on your own. And it can be anyone, it doesn't have to be someone professional, it can be your friends, your parents or people at your work, anyone like it doesn't matter who is but you should just do these things, give them it to review. For example, it can be anything, it can be doing sales like making content or cooking or shooting, fighting, anything. Just you have to make it live proof like recording it or just doing it in front of them and getting their reviews. How this works? I see it and what you can improve and just tell them one thing, give me one thing which I can do in my next action which will make me better and I promise they will give you those things which you never even think of. Like for me, my feedback giver is my mom and I show it to her and she looks at the video and then she tells me what I can improve and I just do it and this is how I improve. So like this is my first video. So one of the most important lessons I learned. In my life is first is the hardest and now I think I have improved right so tell me in the comments what do you think so if you want to do something then just have someone to give you feedback and you will see a really good progress so try this and see.
+
+---
+
