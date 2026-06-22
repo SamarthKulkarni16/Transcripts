@@ -191,3 +191,9 @@ Transcript - if someone says something bad to you then here is what you should d
 
 ---
 
+Title - Do This.
+
+Transcript - many tasks come in the category of now or later task which basically means you are going to do it either now or later it can be from anything it can be as small as you are looking at your plants and seeing that they are drying up and you will think that okay I will water them later or you are looking at your desk and thinking that oh there is mess but I will do it later and the thing is you should just focus on doing it now so you can have space time for later because let's say cleaning your desk so you just get it and you just clean the whole desk so what happens is you do it now and I instead of procrastinating you can just have time space for later so you can just use it for better purpose and this actually helps I tried it and it is really good because we just stack up tasks that we will do later and the later never comes so the best thing is do it now and have time for later because as human beings we only lack of time and that's why you should just focus on doing now the now or later task it can be anything from like as small as cleaning something or as big as making money just focus on prioritizing now or later task and yeah see you
+
+---
+
