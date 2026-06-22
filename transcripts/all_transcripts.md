@@ -203,3 +203,9 @@ Transcript - Yeah, yeah, 2, 2, METRO!
 
 ---
 
+Title - Do you agree_
+
+Transcript - What I have noticed is that losers will find any reason to not doing it and winners will find any reason of doing it. Imagine if you can have every resource you want and just say that I am not feeling like doing it and you will go do it. And you can't have any resource but you can just say that I want it so badly and you can just work towards it. So when you start noticing on your thoughts, you can just notice that everything you see, experience, you feel, these are just perspectives.
+
+---
+
