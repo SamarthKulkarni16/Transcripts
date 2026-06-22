@@ -767,3 +767,9 @@ Transcript - State philosopher Seneca said that we suffer more in imagination th
 
 ---
 
+Title - Lesson.
+
+Transcript - nowadays everyone want to become better everyone want to become great and that's a great thing it's not problem at all and one thing that I learned out of doing this which you can use in your life is that whenever you want to do something learn something or achieve something then you have to do so much work that your result feels so insufficient and it's me it must feel so small and this is where you actually
+
+---
+
