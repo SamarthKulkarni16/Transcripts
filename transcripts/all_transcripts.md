@@ -515,3 +515,9 @@ Transcript - if you don't have the resource you need to achieve what you want th
 
 ---
 
+Title - If Your Life Sucks, Watch This.
+
+Transcript - If your life sucks, then watch this. See, I've studied law of balance a lot and it basically means that universe will eventually balance everything, that input and output everything. And what I've noticed is that every successful person you see, whether that's a celebrity or an entrepreneur or even a fictional character, their life sucked at a place. Like, there was a time when it was so miserable. Like, even if you go in superhero characters like Batman, then his life sucks when he was a kid because he lost his parents. And you can look at any successful person, whether it's real life or fictional, and you will notice that their life was bad when they started and then it got better, so it just balanced. Like, let's say this chart represents a life. So, the below point is bad point and the above things are good. And if things are going bad, then it's a downward graph, but universe will balance. So, you will see the upward graph going after that. And which just means that your life is going to become better. And most people just stay average because they just keep their life at normal level. Like, they will go to school, get a degree, get a job, marry, get kids and just die. That's how their normal thing works. And if you're just having bad things, continuously getting worse and worse and worse, the best thing you can do is just keep going and universe will balance everything. So, yeah, see you.
+
+---
+
