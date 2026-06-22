@@ -473,3 +473,9 @@ Transcript - If something big happened and no one told you, then make sure to as
 
 ---
 
+Title - If Past Is Bothering You.........
+
+Transcript - If something from the past is bothering you then watch this. You see the reality is that you are not in that situation anymore. So the thing that happened let's say you broke friendship with your friend then that situation was just for that small time period that you said something he said something and just it went that way. But it was just for like that time and you are just making it so big and just making big deal out of it. But for now it's not matter because you are in different situation you are in different place the time is different and everything is different and if you are still thinking of it then you are just creating that reality which is not even a real it's the fake reality. So if something in the past is bothering you then stop thinking of it and just live in the reality. So yeah see you.
+
+---
+
