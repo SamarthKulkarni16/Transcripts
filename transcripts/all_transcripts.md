@@ -227,3 +227,9 @@ Transcript - If you don't let them bother you then you won't be bothered because
 
 ---
 
+Title - Don_t Think What They Will Think.
+
+Transcript - If the world becomes utopia tomorrow that everything is good that there is no disease no crime and no scarcity we have abundance of everything then you will still find people who are complaining that why this didn't happen earlier. So stop thinking what others will think and start doing what you want and think.
+
+---
+
