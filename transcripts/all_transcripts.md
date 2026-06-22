@@ -659,3 +659,9 @@ Transcript - If you are doing something for the first time or you really want to
 
 ---
 
+Title - Just Understand These 4 Question.
+
+Transcript - If you understand these four questions then you know about the thing better than most of the people and which is what is it, why it exist, what are the favourable things and what are the unfavourable things. That's it.
+
+---
+
