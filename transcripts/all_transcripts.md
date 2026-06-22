@@ -695,3 +695,9 @@ Transcript - Doing so much volume actually works and let's take the best example
 
 ---
 
+Title - Keep The Grind.
+
+Transcript - Hey, got a mic, turn to a million, and we are rich, that's just how I feel Be the last one out to get this dough, don't wait, love one of your fucking heady hoes
+
+---
+
