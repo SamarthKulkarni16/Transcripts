@@ -461,3 +461,9 @@ Transcript - Thank you.
 
 ---
 
+Title - I_m Back.
+
+Transcript - The fear of judgment exists because when we are in the forest, then we always used to think that we are the group animals. And if we get out of group because we do something different, we do something that is not accepted by our group, then we will be kicked out. And if we are just alone in the forest, then we will be an easy prey for the hunters. But it is not the case right now and we are not in the forest, but the gene is still in our body. So whenever next time you just feel fear of judgment, just remember that this is not forest anymore.
+
+---
+
