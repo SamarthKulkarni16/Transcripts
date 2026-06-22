@@ -425,3 +425,9 @@ Transcript - Most people don't know how to blame because they just blame the unc
 
 ---
 
+Title - How To Find Baseline Emotion Explained In 3 Sec
+
+Transcript - Find the mood you work best in and that's your baseline emotion.
+
+---
+
