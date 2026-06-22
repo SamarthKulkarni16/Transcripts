@@ -479,3 +479,9 @@ Transcript - If something from the past is bothering you then watch this. You se
 
 ---
 
+Title - If People Are Ahead Of You.......
+
+Transcript - If other people are ahead of you, then it's a great news because they are just giving you the roadmap to where you want to move. So just copy them, get there, outwork them and be better.
+
+---
+
