@@ -683,3 +683,9 @@ Transcript - One of the most underrated skill that I know is cleaning your room 
 
 ---
 
+Title - Keep Or Eliminate_
+
+Transcript - these are your current conflicts and some have upside on the other side while some are just going to recycle the main test is if you solve this is it going to open something new or is it just going to recycle old things the conflicts which are going to actually give results you have to give them your real energy and keep it and those which are going to drain your energy like arguments or worrying about things then you just have to eliminate it because the whole process is not about completing those conflicts or ending them but it is actually focused on just keeping what is good and eliminating what is bad
+
+---
+
