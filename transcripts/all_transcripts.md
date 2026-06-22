@@ -233,3 +233,9 @@ Transcript - If the world becomes utopia tomorrow that everything is good that t
 
 ---
 
+Title - Don_t Try, Just Do.
+
+Transcript - Stop using the word trying to because it makes you feel less confident and let's take an example of your making a cake so instead of saying I am trying to make a cake just say I am making a cake and this helps in two things first it helps you sound more confident because you are saying you are doing something and second it gives you a psychological effect which is if I say I am trying to make a video I will just say I am making a video and this gives your brain a little thing which is just like giving you more confidence and your chances of failing decreases and this might sound like some magic but it worked for me so try for yourself and tell me in the comments if it worked for you and follow for more and see you
+
+---
+
