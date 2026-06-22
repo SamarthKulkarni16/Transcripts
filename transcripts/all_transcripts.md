@@ -725,3 +725,9 @@ Transcript - anger is not a problem but it's an energy boost you get and most pe
 
 ---
 
+Title - Learned Lately.
+
+Transcript - Some conflicts are just filling up your calendar while others are actually building up your future. And once I understood this, what I did was I just looked at my calendar and list out all the things that were just taking my energy but not compounding and just removed it and just kept those things which are actually going to compound over years after building it and after giving the conflict my own time and energy.
+
+---
+
