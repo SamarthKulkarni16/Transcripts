@@ -281,3 +281,9 @@ Transcript - for your everyday work or studies try to use goals instead of time 
 
 ---
 
+Title - Everything.
+
+Transcript - here is how to you can you here is how you can use conflicts to your advantage in less than 20 seconds so everything is just issue whatever you do whatever you solve in just your problem solving whatever you do in just problem solving so their mind works that way so if any conflict get out of your life then a different conflict will enter your life so what you do instead is just focus on getting into conflict voluntarily by yourself so focus on how you can make money focus on how on your focus on how you can make muscles and get into conflicts by yourself in such a way that there will be no time for other conflicts to enter in your life
+
+---
+
