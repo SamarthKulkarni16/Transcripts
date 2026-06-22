@@ -215,3 +215,9 @@ Transcript - Whenever you are in a high mood, for example it can be sadness, hap
 
 ---
 
+Title - Don_t Let It.
+
+Transcript - Nothing bothers you, you let it bother it. So there's a short story that when I was a kid, I used to get afraid of dogs. Like I was so afraid of dogs that if they are like this much away from me, I was still scared and I thought that they had some personal issues with me or something because they are just bothering me and there are just people who are walking by and they are doing nothing. But later did I know that it's not their fault. It was my fault that I was letting them bother me. So after that I started going out and just not being afraid of dogs and after a few times I started noticing that I wasn't afraid of dogs. So did the dogs change anything? No, but I changed myself. So if there is something that's bothering you, then it's best to change your perspective or change your attitude towards it so it will change. So try it and see.
+
+---
+
