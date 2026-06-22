@@ -245,3 +245,9 @@ Transcript - 🎵 🎵
 
 ---
 
+Title - Earn The Time. #timeaccounting
+
+Transcript - if the time is spent with long-term gains like exercising then it is a time income
+
+---
+
