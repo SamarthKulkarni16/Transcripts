@@ -323,3 +323,9 @@ Transcript - if your goal for 2026 is to get in shape then you should change it 
 
 ---
 
+Title - Get Rid Of Any Addiction.
+
+Transcript - To get rid of any addiction, just do this one thing, which is first observe and then remove the trigger points. So let's say you have an addiction of scrolling, then you start scrolling and then ask yourself that why you started it in first place. And let's say because it was because you got a notification on your phone. So what you will do, you will just mute the notification. Great. Next time you are scrolling again. So why did you start it? Because your friend sent you a reel. So next time you are going to mute him. So whenever he sends a reel, you don't get notification and it will stay in that place. If you get third time scrolling, then why are you scrolling? Because you saw someone else scrolling. Then you are not going to see someone and even if you saw someone scrolling, then you are just looking away in a second. So it won't caught you. And if you do this two to three times and at max five times, I can bet that your addiction will significantly decrease and your life will actually change. So just try this. And follow for more and see you.
+
+---
+
