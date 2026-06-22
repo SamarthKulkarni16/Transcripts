@@ -761,3 +761,9 @@ Transcript - So last month I was watching Pokemon Horizon for like no reason jus
 
 ---
 
+Title - Lesson From Seneca.
+
+Transcript - State philosopher Seneca said that we suffer more in imagination than in reality and I find it so true because let's say you had fight with a friend and he said something that you it bothers you and you are in the pressure and the pain of what he said but the time he said was just like few minutes like it wasn't even an hour he said in like most of the time he said in in few seconds and at max he said in minutes but you are still feeling the suffering for hours and days and just making it a big deal while the suffering in reality was just for that time period so if you are suffering from what he someone said to you or someone did to you then it's not the current situation right now so just wake up to reality and see you
+
+---
+
