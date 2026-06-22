@@ -371,3 +371,9 @@ Transcript - In this video we are going to turn your feed from looking something
 
 ---
 
+Title - Help Everyone.
+
+Transcript - If you hear more thank you than you say, then congratulations, you are winning.
+
+---
+
