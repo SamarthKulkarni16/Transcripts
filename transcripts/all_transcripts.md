@@ -107,3 +107,9 @@ Transcript - If the time is spent without long term gains then it is a time expe
 
 ---
 
+Title - Choose Friends Wisely.
+
+Transcript - More friends equal to more time liability.
+
+---
+
