@@ -467,3 +467,9 @@ Transcript - The fear of judgment exists because when we are in the forest, then
 
 ---
 
+Title - If No One Told You......
+
+Transcript - If something big happened and no one told you, then make sure to ask next time.
+
+---
+
