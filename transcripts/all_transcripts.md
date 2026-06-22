@@ -593,3 +593,9 @@ Transcript - One thing I found out is that common sense actually works the best 
 
 ---
 
+Title - It_s Not A Big Deal.
+
+Transcript - Stop making big deals out of small things and I learned this from my parents when I was like five years old I used to do a lot of mistakes like spilling water breaking something and this and that and my parents were super chill you know they were just like if I spill the water go and mop it or if I get less marks in an exam they were just like look what you did wrong and then correct it and don't do the mistake again and it was weird for me at that time because my friends parents was always like just saying and yelling at them and telling them that you are idiot and this and that and I thought it was weird for me but now I understand that it was so important lesson and it helps me now because in my character now I can just do things without making big deals so if I just try to do something and failed I will just try it again or if there was a task I was needed to do and I forgot then I will just do it now and it helps because 60 to 80 percent of your anxiety and stress just come from making small things a big deal and just thinking of it over and over and again and just making it a big problem but that's not the real case because it won't matter like the day after the thing happened if it happened today then it won't matter tomorrow so it's not really worth giving your emotions and your energy so don't make big deals out of small things and subscribe and yeah see you
+
+---
+
