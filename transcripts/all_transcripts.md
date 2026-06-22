@@ -719,3 +719,9 @@ Transcript - The faster you return to your baseline, the more you win.
 
 ---
 
+Title - Learn To Use Anger To Your Advantage. #anger #p
+
+Transcript - anger is not a problem but it's an energy boost you get and most people just waste it on stupid things so if you want to use it productively and just make your life better with anger then just comment down below anger and i will send you the link to the playbook on how you can do it
+
+---
+
