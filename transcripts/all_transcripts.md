@@ -509,3 +509,9 @@ Transcript - if you are stuck in traffic then you can either think that this is 
 
 ---
 
+Title - If You Don_t Have The Resources.....
+
+Transcript - if you don't have the resource you need to achieve what you want then the best thing you can do is just finding substitute and trust me there is substitute for anything you want you just have to ask for it and you can google it or use ai to just know and this will actually help because it helped me so try it
+
+---
+
