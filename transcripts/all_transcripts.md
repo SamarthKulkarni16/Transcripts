@@ -731,3 +731,9 @@ Transcript - Some conflicts are just filling up your calendar while others are a
 
 ---
 
+Title - Learning Technique.
+
+Transcript - when you want to learn something doing it will make you actually better than doing other things like when i tried to learn how to speak in english what i did was i started learning grammar and i did it for like two months and after that no progress because i was learning grammar i wasn't learning how to speak in english right and i see everyone doing these things like that let's say you want to learn how to make a video on youtube so people instead of learn actually making videos they will just go on tutorials and learn things but you are not here to learn how to learn from the tutorial of how to make a video you are actually trying to learn how to make a video so making a video will make it better and all the books and tuitions and the classes and all the courses everything will help but this is not the actual part so my recommendation will be whatever you want to do just start doing it and when you do it then add up those things to help it and boost your flow and this will work so try it and subscribe for more and see you
+
+---
+
