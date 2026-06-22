@@ -23,3 +23,9 @@ Transcript - Success is not motivation, it's returning to your baseline emotion.
 
 ---
 
+Title - Baseline Emotion.#perspective #baseline
+
+Transcript - If mood blocks your work, then don't just fix your mood, just return to your baseline emotions.
+
+---
+
