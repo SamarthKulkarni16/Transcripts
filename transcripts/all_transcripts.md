@@ -635,3 +635,9 @@ Transcript - jealousy is not bad and everyone says that don't be jealous jealous
 
 ---
 
+Title - Just A Perspective.
+
+Transcript - most people just destroy themselves by going to the extreme they go all in all out work hard and just burn out and they think that this is growth but actually it's not it's just the lack of control real control actually looks boring knowing when to push knowing when to stop knowing when to take care and knowing when to let it go
+
+---
+
