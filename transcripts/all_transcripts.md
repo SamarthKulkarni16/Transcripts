@@ -179,3 +179,9 @@ Transcript - if you hear something on the internet about your destiny or if it i
 
 ---
 
+Title - Do It.
+
+Transcript - never just go for the summaries because many times like you can be doing anything like reading books or watching youtube video or anything like that and if you just go for the summary the main points then you are not going to absorb the thing and understand it fully like many things i remember from books and videos are from like examples and this actually helps because it takes some time but it helps you to understand how you can use it and it gives you the better idea and better context of the thing and sometimes things like happen that you might learn from an example something that was far more important than the main point of the topic like you are reading an example and you get a point or line which just change your life and this happens because this happened to me many times and that's why just go for it the full thing whether it's book or youtube video lectures whatever like you went for this video and follow and see you
+
+---
+
