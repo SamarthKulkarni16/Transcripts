@@ -527,3 +527,9 @@ Transcript - if your life sucks then you either don't have any plan or you have 
 
 ---
 
+Title - Imagine.
+
+Transcript - Imagine this, there is a homeless guy who just thinks that if he gets a food, then all of his problems will be solved. But that's not true because the moment he starts getting food regularly, then his next want is just to get better clothes. Then he wants a better house. Then he wants a better family. And it just upgrades, upgrades, upgrades. And it's not an issue. It's not something like we don't need to do this. But this is actually how our brain works. So if you want to become better, then instead of thinking that once I get one thing and I will be better, just think how you can upgrade your problems and just get better.
+
+---
+
