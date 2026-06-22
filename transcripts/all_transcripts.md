@@ -119,3 +119,9 @@ Transcript - when you are saying something to someone the clarity of it is the m
 
 ---
 
+Title - Communication Hack.
+
+Transcript - if you want to improve your communication skills then you can go to chat gbt and use its voice chat feature and it's really good because you can tell him that i want to increase my communication skills and he will give you some things and he will talk to you and he will give you what you can do and just it becomes so better with time like i did it for two three times i haven't learned it many times but i'm doing it now and it gives you so much benefits and because it is a ai which is just personal assistant like you can talk it for one minute ten minutes like it has some limit to free plan but it's still good compared to other things so if you want to improve your communication skills just go to chat gbt and use this voice feature and you will see the changes so try this and see
+
+---
+
