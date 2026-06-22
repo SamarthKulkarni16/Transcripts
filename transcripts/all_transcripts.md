@@ -443,3 +443,9 @@ Transcript - If you want to understand everything clearly then just know about t
 
 ---
 
+Title - How_s The Technique_
+
+Transcript - whether they are lying about their characters and ethics or not is understanding very simple just you have to do one thing just ask them what was the last time they actually applied it and if they give a clear cut with reason answer then you know that they are telling the truth and if they hesitate or they give answer which fills off you know what is it see you
+
+---
+
