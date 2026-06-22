@@ -503,3 +503,9 @@ Transcript - If you are giving everyone everything good but still not getting wh
 
 ---
 
+Title - If You Are In Traffic....
+
+Transcript - if you are stuck in traffic then you can either think that this is a very bad day i am going late or you can just think that oh nice i got time so i can check if i am ready to go and i am not missing something it's same situation just different perspective
+
+---
+
