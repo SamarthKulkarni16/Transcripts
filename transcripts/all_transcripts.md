@@ -665,3 +665,9 @@ Transcript - If you understand these four questions then you know about the thin
 
 ---
 
+Title - Just a thought.
+
+Transcript - I can't see at all, even if I could it'd all be grey
+
+---
+
