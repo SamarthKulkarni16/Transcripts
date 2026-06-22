@@ -77,3 +77,9 @@ Transcript - If it is boring that it will work. If it works then you will succee
 
 ---
 
+Title - Breath.
+
+Transcript - Before scrolling further, just take a deep breath and you can continue scrolling.
+
+---
+
