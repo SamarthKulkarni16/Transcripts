@@ -167,3 +167,9 @@ Transcript - Poor people think that let's see what happens and rich people think
 
 ---
 
+Title - Day 1 Of Building @innercraftdojo
+
+Transcript - Day 1 of building innercraft dojo and actually this is not the first day because in the last three days i have already dm'd 150 people i have also secured the name for the innercraft dojo on every social media platform right now my goal is simple i want people to try my system so i can prove it that it actually works so i started inviting people and out of those 150 dms no one had joined it i know it hurts but this is the part of game so we are going to keep going and if you want to be a part of my innercraft dojo first experience then just dm me and yeah see you
+
+---
+
