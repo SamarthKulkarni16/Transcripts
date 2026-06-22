@@ -401,3 +401,9 @@ Transcript - how I set my goals for 2026 and you can do it too so what I do is j
 
 ---
 
+Title - How To Actually Create A Habit.
+
+Transcript - if you want to create a habit in 2026 what you should do is have one thing that you want to do for example if you want to start habit of working out then what you should do is in your list just say that i am going to work out daily that's it like no habits and this and that just say that i am going to do it daily and see you
+
+---
+
