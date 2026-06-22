@@ -53,3 +53,9 @@ Transcript - This one relationship hack will make you so much better in connecti
 
 ---
 
+Title - Best Way Of Not Doing Something.
+
+Transcript - The best way of not doing something is not starting it. And if you have any bad habit, for example, let's say scrolling, then if you just don't start scrolling, then you won't scroll at all. And it's very easy because when you are scrolling, then it's hard to get out of that environment because you are just engrossed in that thing. So the best thing you can do to avoid any bad habit is just not get the start where it starts and you will see the results. So follow for more and see you.
+
+---
+
