@@ -221,3 +221,9 @@ Transcript - Nothing bothers you, you let it bother it. So there's a short story
 
 ---
 
+Title - Don_t Let Them.
+
+Transcript - If you don't let them bother you then you won't be bothered because think of it like let's say it's an ordinary day and your friends are doing something that pisses you off or makes you angry something like that and then you just feel that bad energy and you just keep going for the whole day but instead if you just let them do whatever they are doing and not get bothered this will result in one of two things. First will happen is that they will stop bothering you because they will just lose interest because you are not bothered and their main point was just to piss you off and things like that and in the second case which happens really rarely but it happens sometime which is they will just keep doing the same thing they were doing but it's not bothering you right now so it won't really matter so it's like a win-win situation so just focus on not getting bothered by anyone and just focusing on what you are doing and subscribe and yeah see you.
+
+---
+
