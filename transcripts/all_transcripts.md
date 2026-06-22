@@ -347,3 +347,9 @@ Transcript - one really good habit that i have and you should have it too becaus
 
 ---
 
+Title - Habit Hack.
+
+Transcript - When I tried to substitute one habit from another like changing from hot shower to cold shower or changing from unhealthy food to healthy food what I did was I didn't have any substitute so what I did just what I want I just keep it in the first place and there was nothing else so if I want to do it I have to do it and there is no other way like if you want to start taking cold showers then having a water heater won't help so just get rid of it sell it or whatever and you will not have any option but to go in the cold showers and then let's say if you want to start a habit of eating healthy food instead of junk food then you should fill your kitchen with all the healthy foods and there will be no substitute for it and if you are hungry then you are just going to eat healthy food and this is going to help so try it and see.
+
+---
+
