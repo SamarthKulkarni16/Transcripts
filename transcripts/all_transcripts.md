@@ -71,3 +71,9 @@ Transcript - Don't blame yourself, don't blame other people, just blame what you
 
 ---
 
+Title - Boring Is Interesting.
+
+Transcript - If it is boring that it will work. If it works then you will succeed. And if you succeed that other look at it and they get interested on how you do it. And so the process actually become interesting from boring.
+
+---
+
