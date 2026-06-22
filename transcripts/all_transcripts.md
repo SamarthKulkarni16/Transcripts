@@ -131,3 +131,9 @@ Transcript - Don't look at comparison as feeling small but just look at the comp
 
 ---
 
+Title - Comparison Is Useful.
+
+Transcript - Comparison is not bad, you just have to find the gap and use it as a roadmap.
+
+---
+
