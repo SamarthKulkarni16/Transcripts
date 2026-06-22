@@ -275,3 +275,9 @@ Transcript - every situation is a win-win situation you just have to think that 
 
 ---
 
+Title - Everyday Task Technique.
+
+Transcript - for your everyday work or studies try to use goals instead of time like instead of saying i am going to study five hours every day just do like i am going to do this goal and just keep setting goals every day or every week because i can tell you when i was in school i had many friends who were studying literally 12 hours and still not making progress because they lack of goal because they were just most of the time wondering that what i should read and what i should do and then i will do this subject but this is boring i will do another and just time was passing like that and just it was happening but they were not achieving what they want so my best advice will be to set a goal either a night before or just in the morning however you like and then just do it no matter if it takes five minutes you can do it no matter if it takes five minutes you can do it no matter if it takes five minutes or ten hours just you are going to do it and if you have mindset like that then you are become unstoppable so try this for a week and tell me in the comments your experience and follow for more and see you
+
+---
+
