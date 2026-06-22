@@ -623,3 +623,9 @@ Transcript - 🎵
 
 ---
 
+Title - It_s Your Choice.
+
+Transcript - Everything happens with your consent. Everything happens because you agreed it to be happen. Let's say if someone is angry on you, then it's your choice to keep them angry or just get rid of the anger or leave the person. You can do many things but you are choosing the anger. And let's say if someone is blackmailing you, then it's your choice to let them blackmail or you can just complain or just leave that person or just move the city. You can do many things but it's your choice to be in that place. And the main point is not to make you regret or feel sad about it. But the main point is to tell you that everything is in your control if you just take the control. So my best advice will be just take the control of your life and see changing results. So yeah, see you.
+
+---
+
