@@ -641,3 +641,9 @@ Transcript - most people just destroy themselves by going to the extreme they go
 
 ---
 
+Title - Just Get Into The Environment.
+
+Transcript - Many times in your life you really don't want to do something that you are required to do So the best thing you can do is get into its environment So like really before making this video I really didn't wanted to make a video So I just washed my face and put on the cloths and set up the camera And see now I am recording the video So it's like getting into the environment So if you don't want to work out you should just go to the gym and sit there and you will start working out If you really don't want to work on your project you should just sit on your desk Open up the files or whatever and you will start working So the whole point is when you really don't want to do that you are required to do Just get into its environment and you will do it So yeah see you Thank you for watching
+
+---
+
