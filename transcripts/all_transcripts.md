@@ -521,3 +521,9 @@ Transcript - If your life sucks, then watch this. See, I've studied law of balan
 
 ---
 
+Title - If Your Life Sucks.........
+
+Transcript - if your life sucks then you either don't have any plan or you have a plan but it sucks or you have a plan which is good but you are not working accordingly and this i found this that everyone says that my life sucks that one of these things are happening because if you have a good plan which is working and you are working accordingly then there is no point that saying that my life because you know you are working towards a good goal so if you think your life sucks then look at these three things and ask yourself which one is your situation and just change it and you will see the result so yeah see you
+
+---
+
