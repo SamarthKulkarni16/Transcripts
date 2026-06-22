@@ -713,3 +713,9 @@ Transcript - oooohhh don't go don't go to sleep
 
 ---
 
+Title - Learn To Return To Your Baseline Fast.#perspect
+
+Transcript - The faster you return to your baseline, the more you win.
+
+---
+
