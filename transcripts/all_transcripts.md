@@ -341,3 +341,9 @@ Transcript - The difference between having a good ego and bad ego is that when y
 
 ---
 
+Title - Great Habit To Have.
+
+Transcript - one really good habit that i have and you should have it too because it just helps a lot is just writing down what you are going to do when you remember it so it's basically like for me i'm creating more videos so whenever i get idea or i hear something which is good or like i experience most of the time which is a good idea then i will go to my notepad app and there is a automatic to-do list inbuilt so i just go there and i write down my ideas so i can whenever i am recording the video i can just go there and look for ideas and then i can come up with these videos and it will help you too even if you're not a content creator something you can just write those things which you like or something that you are going to need to do for example you are going out and you remember that you have to clean your cupboard but you have no time because you are going out so the best thing you can do is just write it somewhere or just download a to-do app or if it's inbuilt then it's just best then you can just just go there and write this thing down so whenever you're back and you're checking your mobile you can see that there is something you have to do and you will do it because we think we will remember it but trust me like no one remembers those things we will just remember it for few minutes and we just forget it and it's for many things it's for business idea or whatever whenever you just get something remember something just write it down or do something it will help you remember and then this will help a lot so try this and see
+
+---
+
