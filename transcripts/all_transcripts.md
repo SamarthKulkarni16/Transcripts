@@ -257,3 +257,9 @@ Transcript - just found out that there was no single word for happiness and plea
 
 ---
 
+Title - Emotion Is Feedback.
+
+Transcript - Our emotions are just signal of what is happening, we should just look at them as a feedback of our surrounding.
+
+---
+
