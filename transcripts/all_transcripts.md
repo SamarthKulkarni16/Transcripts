@@ -335,3 +335,9 @@ Transcript - Getting distracted is not a problem, it is a relief you see because
 
 ---
 
+Title - Good Ego VS Bad Ego.
+
+Transcript - The difference between having a good ego and bad ego is that when you have a bad ego then what you do is when someone insults you then you feel like I will punch him, I will beat him, I will destroy him this and that and this is bad thing because it creates violence and it just creates the tension which is even not required in your life and having a good ego is that I know I worth something and if someone insults me then I don't care because I know I worth something so it's very simple
+
+---
+
