@@ -449,3 +449,9 @@ Transcript - whether they are lying about their characters and ethics or not is 
 
 ---
 
+Title - I Broke A Streak......
+
+Transcript - so yesterday was my dad's birthday and he turned 58 and the thing was that we brought in some chinese food to just party and enjoy the thing and i was just eating healthy food for the last nine and half months i started in february i was just eating healthy food and but yesterday i broke the streak and i just ate the junk food but the thing i learned from it was that when you decide to do something or not to do something and you keep going keep going and make the streak happening then something might happen that might cause this thing to break and it will just not give you the streak and it might just break at some point but the main point is that you shouldn't just get demotivated and just lose it like i ate the thing yesterday but from tomorrow on i am just going to eat healthy food forever and whenever something came and some situation came where i have to eat something and i was just eating healthy food and i was just eating healthy food and i was just eating healthy food and i was just eating healthy food and i was just eating healthy food and i was just some junk food then i will eat it enjoy it and just move on and just keep continuing eating healthy food so that's the thing so whenever you broke the streak in your life just don't get demotivated just get back to the work and continue the streak so yeah see you
+
+---
+
