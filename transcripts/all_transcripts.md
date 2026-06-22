@@ -569,3 +569,9 @@ Transcript - most of your anger and dissatisfaction will go away if you just sta
 
 ---
 
+Title - It Won_t Stay Even If It_s Meant For You.......
+
+Transcript - People say if it is meant for you then it will stay for you or with you and this is the number one bullshit you can hear on internet because this is not something that is actually true. Many things that might be meant for you are leaving you because you are not doing anything. Like if you have a relationship then you must give them time, you must give them your energy to be with you. If you want a great physique and if you have a great physique it does not mean that it will stay forever. You have to put in those work, you have to do workouts, you have to eat healthy, you have to maintain your step. You just maintain what you have. Focus on what you are doing, just focus on action steps and yeah see ya.
+
+---
+
