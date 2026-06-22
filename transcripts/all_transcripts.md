@@ -197,3 +197,9 @@ Transcript - many tasks come in the category of now or later task which basicall
 
 ---
 
+Title - Do You Have Same_
+
+Transcript - Yeah, yeah, 2, 2, METRO!
+
+---
+
