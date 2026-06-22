@@ -689,3 +689,9 @@ Transcript - these are your current conflicts and some have upside on the other 
 
 ---
 
+Title - Keep The Dice Rolling.
+
+Transcript - Doing so much volume actually works and let's take the best example which will be you and your friends decided to go to a competition which is a dice rolling competition and you both went there and you have to choose a number which you are going to roll your dice that time. So your friend is a lazy guy and he chose the number 100 so he is going to roll the dice 100 times and you are a hardworking guy so you chose to go for a 1000 times and now the game is simple that you have to roll the dice every time and the number which comes up they are going to be points and the points are going to add up until you finish your turn and the total sum will be your score and if your score is higher than your friends then you will win. And as your friend has chosen the number of 100 then he will have a less competitive advantage and there is no way he will win. And the main reason is because he chose 100 times. chose to do it hundred times and even if he have some magic trick all his luck is on his side he has his voodoo doll or anything everything if he does land six every time for a hundred time this is still 600 points and if your luck is the worst luck in the world and you're it's the bad day of you and you just roll the dice and keeps getting the one point but you will still win because you did it thousand times and thousand times one is 1000 so 1000 is still greater than 600 and you will still win despite of your luck so just one so whatever you are doing just focus on doing it so many times and yeah see you
+
+---
+
