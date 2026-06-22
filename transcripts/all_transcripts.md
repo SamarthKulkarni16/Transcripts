@@ -749,3 +749,9 @@ Transcript - So last week I had some homework to do so I just set up to do the h
 
 ---
 
+Title - Lesson From Maths Teacher.
+
+Transcript - I had a maths teacher in my 10th class who was like one of the worst teachers like she didn't taught us anything about maths but one thing that I remember was that it was the first day of the school of the 10th class and we were just sitting on the benches and it was the first lecture of her and she just came and she was telling us how to prepare for the final exam and everyone was just listening by focus and one thing she said that if you want to get better marks you have two options you can either study now and enjoy later or you can just enjoy now and study later in both cases you are going to have good marks that's no argument but the thing is whatever you want choose and you can just have good marks and I chose the enjoy later and study now part but main point was that I think this is true for life that if you just focus now and make money when you are younger then you can just enjoy the life and if you enjoy now you can just make money and hustle your entire life so it's your choice whatever you want you can just pick one and stick with one and that's one thing I wanted to share so follow for more and see you
+
+---
+
