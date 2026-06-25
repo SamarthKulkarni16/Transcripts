@@ -1013,3 +1013,9 @@ Transcript - Focusing on present is really hard so I found a substitute which is
 
 ---
 
+Title - THIS Is Where The Actual Conversation Should St
+
+Transcript - Most people just end their conversation where it should actually start and I can bet that you have done it too. So let me give you an example that if something is bad happening to you then you will ask why this happens to me and just move on or you are doing something and you want to be better then you are talking with your friends about it and you think that and you talk about it how we can become better but at the end you don't get any answer and you just say like there is no option. Right and you ask the question but you end the conversation there and this is where actual conversation should start and you should study about it the question because it is a really good question the perfect question of the moment but you are just questioning it whenever next time the situation comes about why this happens to me or something like what we can do instead then don't end the conversation there and actually start the planning and start studying about it. And then you will get your answer so try this and see you.
+
+---
+
