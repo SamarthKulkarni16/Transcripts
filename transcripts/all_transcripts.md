@@ -1061,3 +1061,9 @@ Transcript - 🎵
 
 ---
 
+Title - There Is Cause To Effect.
+
+Transcript - Everything is survival. Fear is threat to survive. It's jealousy because someone have more resources. There is sadness because a resource is lost. And that's why everything is just connected and nothing is just random.
+
+---
+
