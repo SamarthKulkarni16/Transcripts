@@ -1133,3 +1133,9 @@ Transcript - here are the ways to complete every task so there are two types of 
 
 ---
 
+Title - Understand This.
+
+Transcript - So in order to make money, the thing you need is providing value.
+
+---
+
