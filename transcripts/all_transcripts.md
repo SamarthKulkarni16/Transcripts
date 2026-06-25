@@ -1343,3 +1343,9 @@ Transcript - you might be calculating your interest rates in wrong way so let me
 
 ---
 
+Title - You Are Childish. #shorts
+
+Transcript - if people call you childish then this is just because they can't admit the fact that you are always happy so if they call you childish just take their opinion as a compliment and just keep going and be happy
+
+---
+
