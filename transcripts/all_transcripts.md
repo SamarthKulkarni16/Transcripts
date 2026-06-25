@@ -929,3 +929,9 @@ Transcript - They got a mic, turn to a million and we all rich, that's just our
 
 ---
 
+Title - Sacrifice Matters.
+
+Transcript - Bigger the sacrifice is, bigger the reward is, so whatever you want, if you do big sacrifices, you will get big rewards.
+
+---
+
