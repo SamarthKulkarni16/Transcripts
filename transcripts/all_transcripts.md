@@ -977,3 +977,9 @@ Transcript - Get away from problem flexers because these are just people who fle
 
 ---
 
+Title - Stop Complaining And Start Praising.
+
+Transcript - if you don't praise what you have then you can't complain to what you don't have because at any point of your life you will have something and you will not have something so stop complaining and just start praising whatever you have and see
+
+---
+
