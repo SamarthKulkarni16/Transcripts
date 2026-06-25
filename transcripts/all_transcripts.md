@@ -1109,3 +1109,9 @@ Transcript - if you're struggling with eating healthy food here I struggle too a
 
 ---
 
+Title - Try This.(1)
+
+Transcript - you will find people online some saying that you should do one task at a time another saying do multitask so who should you hear so what I found out is first you should focus on mastering one task at a time so like for example let's see a working out so you should be able to work out in full focus without getting distractions so no notifications and no any friends calling or anything like that and just focus on getting one thing better and after that you can do is you can add things like hearing an audiobook while working out and etc and then you can stack up tasks and save up lot of time so you can utilize it for better purpose and this is how you can just do many tasks and yeah see you
+
+---
+
