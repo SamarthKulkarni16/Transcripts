@@ -1301,3 +1301,9 @@ Transcript - on social media your brain just gets into very small conflicts like
 
 ---
 
+Title - Why Do We Feel Jealous.
+
+Transcript - jealousy is one of the emotions that everyone have but why that we feel bad if someone is doing better than us that i feel jealousy you feel jealousy but what's the actual reason and after doing some study i found out that it has its origin to the charles darwin's theory of evolution which suggests the survival of the fittest and which just basically means that if you are better the chances here of your surviving are better if you saw your friend that having vacation in other country having a beautiful girl and driving a lamborghini or something like that you feel jealous because he have more resources and he is doing better than you in some aspects so he have more resources and the chances of his survival is more than yours our body doesn't have the mechanism of being happy all the time the main function of our brain is just you helping us survive and that's why we feel jealous because this is the natural alarm clock of your body that just says you that look he's doing better so that his chances of surviving are better than you so that was the main reason why we feel jealous so yeah see you
+
+---
+
