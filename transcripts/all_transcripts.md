@@ -1139,3 +1139,9 @@ Transcript - So in order to make money, the thing you need is providing value.
 
 ---
 
+Title - Use Anger. #anger #perspective
+
+Transcript - There are two types of people. First, who can control their anger and most of the people can't control their anger. But if you want to become better than both and use your anger to your advantage, just comment down below anger and I will send you the playbook.
+
+---
+
