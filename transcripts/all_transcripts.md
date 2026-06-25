@@ -1115,3 +1115,9 @@ Transcript - you will find people online some saying that you should do one task
 
 ---
 
+Title - Try This.
+
+Transcript - rephrase the term you are wrong with either why or let me confirm and this helps because many times in our life things came which are opposite to our thoughts so let's say someone comes in your house your friend or something and tells you that bro there is no alien life anywhere in the world and you are a believer of alien life so you will say no you are wrong but instead of saying this you should ask why and this will help the conversation to open and it will make you seem more smarter that you are actually being open to understand the thing and you will also become more smarter because you will understand more things and his perspective etc and in second case which like let's say there is a homework and your friend says Bro do you did this homework and you are like no you are wrong see Пом as now never mind was no homework right but in case there might be things like there was homework but you didn't know because you were somewhere else or something like that so you should say let me confirm and this you to become better and understand more things and being more intelligent and yeah this helps many things so do this shift and subscribe and yeah see you
+
+---
+
