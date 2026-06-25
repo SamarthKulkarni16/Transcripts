@@ -875,3 +875,9 @@ Transcript - Power or Excitement, which one do you choose because when you start
 
 ---
 
+Title - Problem Or Apportunity.
+
+Transcript - One of the best mindset shifts that I had that you can have too is changing your looking from problem to opportunity. For example, let's say a showpiece broke in your house. So are you looking at a problem that it just broke or you are looking at it as an opportunity that you can now get a better one and just a new one. And another example will be that let's say you are not in a good physique. Then are you looking at it as a problem that you don't have a great shape in your body or are you looking at it as an opportunity that you can have a better shape in your body. And the best thing about it is you become very optimistic and you start doing many things which will help you to get better in life. So start looking at every problem as an opportunity. And you will start seeing the results. So subscribe for more and see you.
+
+---
+
