@@ -1175,3 +1175,9 @@ Transcript - you shouldn't ignore other people's opinion and just learn to use i
 
 ---
 
+Title - Use The Anger.
+
+Transcript - Anger is not a problem, most people just think that anger is something that you shouldn't have but this is the old thinking if you try to look it from another perspective it is something that you can use to your advantage because it is the energy boost you get because of some reasons and if you want to know how to use it just comment down below anger and I will send you the free paybook.
+
+---
+
