@@ -1361,3 +1361,9 @@ Transcript - You are only as bad as what you did today and this is also a good l
 
 ---
 
+Title - You Are Only As Good As What You Did Today.
+
+Transcript - You are only as good as what you did today and this is very important thing because you might be doing many good things throughout the days, you might have awards and anything but if you didn't did anything today then it just don't matter because the past is past and future you don't know what is coming but if you did today what you decided then you win. If you are eating healthy food for like a year but today you just ate junk food then it's not a good thing and for today you are a guy who just eat junk food. So it just don't matter what you did before what actually matters is what you did today. So just try to do best things on this day and follow for more and see you.
+
+---
+
