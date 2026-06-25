@@ -1259,3 +1259,9 @@ Transcript - When life gets worse, then the self development is the damage contr
 
 ---
 
+Title - When Situation Gets Worse........
+
+Transcript - when situation gets worse in the movie you don't feel sad or depressed but you just feel excited and you feel curious about what will happen next so if something is bad happening to you in your life why don't you think the same way think about it
+
+---
+
