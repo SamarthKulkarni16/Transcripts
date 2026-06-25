@@ -1217,3 +1217,9 @@ Transcript - if you don't know what to improve in your life then having a radar 
 
 ---
 
+Title - What Are Your Thoughts_
+
+Transcript - La la la, la la la, la la la la
+
+---
+
