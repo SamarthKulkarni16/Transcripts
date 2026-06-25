@@ -1313,3 +1313,9 @@ Transcript - Then the second thing is why it exists and the reason your fat exis
 
 ---
 
+Title - Why Not You_
+
+Transcript - I read an article which said that there are people who suffered a lot and still succeed and then why you can't do that because you have a lot of good things. But it doesn't work that way. You have to suffer in order to enjoy the success.
+
+---
+
