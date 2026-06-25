@@ -1355,3 +1355,9 @@ Transcript - If people call you lazy, then you should move, not to prove them wr
 
 ---
 
+Title - You Are Only As Bad As What You Did Today.
+
+Transcript - You are only as bad as what you did today and this is also a good lesson because no matter what you did in the past or what you think of doing in the future, what you did today determines you. So if you scroll throughout the social media for like 2 years but today you decided that I am not going to scroll and you didn't scroll then you are a guy who don't scroll and for today you are the best guy. So this is really good thing because if you have a bad habit or just wasting your time for a whole year but if you did today something good then for today you are the best guy. So instead of thinking what you did in the past or what you are going to do in the future, if you just focus on today and accomplish what you have goals for today then you will become better and follow for more and see you.
+
+---
+
