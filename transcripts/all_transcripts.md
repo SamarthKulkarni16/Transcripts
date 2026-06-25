@@ -983,3 +983,9 @@ Transcript - if you don't praise what you have then you can't complain to what y
 
 ---
 
+Title - Stop Just Receiving Advice.
+
+Transcript - No one in the world got better by receiving advice and those people who tell you that their life completely changed because they heard advice then they meant that their life changed because they implemented the advice. So if you are just receiving the advices then it's not going to help at all but if you start using it then it might change your life. So follow for more and see.
+
+---
+
