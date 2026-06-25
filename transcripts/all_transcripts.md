@@ -917,3 +917,9 @@ Transcript - 🎵
 
 ---
 
+Title - Remembering Technique.
+
+Transcript - When you are trying to remember something, just adding something funny or stupid thing to it will actually help to understand it and learn it for a very long time. Like let's say my name is some earth and you want to understand it or you want to remember it how you can remember. So just how it sounds like some earth some earth like not all earth just some earth. And this doesn't make any sense but this is how my name sounds some earth. And now you will remember my name for a long time whenever you see my face next time you are like oh he is the guy who made the logic some earth some earth. And you will understand my name and this is how the work. So when you are trying to learn some words name or remember something just make some stupid logic towards it and you will remember it for a long time. So try this and see.
+
+---
+
