@@ -953,3 +953,9 @@ Transcript - Hello, what's up? I'm Lera Sof
 
 ---
 
+Title - Start Comparing Yourself With Successful People
+
+Transcript - Comparing yourself to other people is the fastest way to get success because you can just look at what they are doing do it yourself and get the success
+
+---
+
