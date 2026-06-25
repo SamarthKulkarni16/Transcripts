@@ -1397,3 +1397,9 @@ Transcript - you use a pencil to write something or draw something but once the 
 
 ---
 
+Title - Your Environment Matters.
+
+Transcript - Your environment is your reflection, so just change the source.
+
+---
+
