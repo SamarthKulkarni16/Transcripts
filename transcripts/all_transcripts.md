@@ -899,3 +899,9 @@ Transcript - whenever you're buying something just remember one thing that never
 
 ---
 
+Title - Real Way To Get Rid Of Any Bad Habit.
+
+Transcript - if you want to get rid of any bad habit in 2026 what i recommend is having a substitute for that habit which will help you to get rid of it and i have two substitute which i recommend and which will help you so you should make sure to try and these substitute are first just going out for a walk and second is talking to someone like your friend or family or someone and just not about that particular topic but any topic and just talk about them or have walk and what will happen is that your brain will just start in new thing because talking to someone or walking just unlocks new things and you look at different things you feel different things and this will help you to just get rid of that old bad habit and just start a new one which is a walking or getting socialized and this might help you a lot so just try this and see
+
+---
+
