@@ -1265,3 +1265,9 @@ Transcript - when situation gets worse in the movie you don't feel sad or depres
 
 ---
 
+Title - When Someone Leaves...
+
+Transcript - When someone leaves you, they also leave the old conflicts like what am I going to do without them or who am I without them, what are the things I can do so now that I am not with them and these are actually useful conflicts not just like random ones but actually useful and most people just get rid of them by just doing things like getting into newer friends, different conflicts, some time pass, randomness and they will just leave those important conflicts because the people who come out of different situations aren't the most tough people but they are actually the people who have stayed in the important conflicts long enough so that they can get better.
+
+---
+
