@@ -1337,3 +1337,9 @@ Transcript - Yesterday you could have done it Yesterday you would have done it A
 
 ---
 
+Title - You Are Calculating Your Returns In Wrong Way.
+
+Transcript - you might be calculating your interest rates in wrong way so let me explain let's say you live in USA and you have $10,000 and you decided to put in into a bank now bank tells you that they will give you 4.5% interest rate on your money if you put it for one year if you calculate it and you will notice that you will get $450 but this is where most people get wrong let me explain because they forgot the most important thing which is inflation you see this is called as nominal interest rate which is calculated at 4.5% but we need real interest rate so here is the formula real interest rate is equal to nominal interest rate minus inflation and if you calculate calculate it in that way, it will be equal to 1% in our case so your actual returns will be just $100. That's why most rich people hate the banks. Subscribe and see you.
+
+---
+
