@@ -941,3 +941,9 @@ Transcript - Every problem have their solution in these four questions which no 
 
 ---
 
+Title - Some Sentences Teach A Lot.
+
+Transcript - Once I understood that the only sentence which matters is just that humans and animals, no matter which survival species it is, everyone just focus on survival, at their own survival and the survival of their species. And this sentence just actually changed the way I look at every human, including myself and every other animal. And so in this month, I'm just going to talk about survival and everything related to it and it will be a lot of fun. So follow for more. And see.
+
+---
+
