@@ -1295,3 +1295,9 @@ Transcript - when you do nothing the time flies by and when you remember that yo
 
 ---
 
+Title - While Scrolling....
+
+Transcript - on social media your brain just gets into very small conflicts like what is he guys say what is he going to say next what is this person doing what is this meme what is the joke what are the comment sections etc it doesn't give you anything which requires a lot amount of time energy and attention and that's why your life doesn't change much after you complete scrolling
+
+---
+
