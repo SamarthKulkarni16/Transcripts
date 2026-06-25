@@ -1085,3 +1085,9 @@ Transcript - If you do other things like scrolling, watching TV or whatever inst
 
 ---
 
+Title - Time Capital. #timeaccounting
+
+Transcript - The 24 hours you get every day is your time capital.
+
+---
+
