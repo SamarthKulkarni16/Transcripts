@@ -1103,3 +1103,9 @@ Transcript - If trying header will actually work then just try it and if doesn't
 
 ---
 
+Title - Try These And Stay Healthy =ƒÆ¬
+
+Transcript - if you're struggling with eating healthy food here I struggle too and here is what you should do so first step is just get rid of every junk food and replace it with whole grains and whole food vegetables fruit etc and all the junk food you have in your fridge right now just throw it away on in the dustbin like I am serious just throw it away and second thing that I did was I fasted so like my average time of lunch is around 11 but I didn't eat until it was like 2 p.m. 3 p.m. and at that point I was so hungry that I can literally eat anything that is edible at that point that healthy food was like so good and like it tasted the best because I was so hungry and I wanted food really desperately so definitely check this these two hacks and yeah see you
+
+---
+
