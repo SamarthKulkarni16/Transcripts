@@ -923,3 +923,9 @@ Transcript - When you are trying to remember something, just adding something fu
 
 ---
 
+Title - Reminder.
+
+Transcript - They got a mic, turn to a million and we all rich, that's just our
+
+---
+
