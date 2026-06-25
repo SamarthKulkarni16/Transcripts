@@ -1181,3 +1181,9 @@ Transcript - Anger is not a problem, most people just think that anger is someth
 
 ---
 
+Title - Use The Blame To Your Advantage.
+
+Transcript - They said it's your fault, so I just asked what it means and fixed it.
+
+---
+
