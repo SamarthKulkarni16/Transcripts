@@ -1391,3 +1391,9 @@ Transcript - if you want something then having the desperate spirit is good but 
 
 ---
 
+Title - You_re Never Not Solving.
+
+Transcript - you use a pencil to write something or draw something but once the task you have done then the conflict is just gone and then you are going into another conflicts like what i'm going to eat what i'm going to talk about what i'm going to do and everything you are doing is just conflicts like at this moment right now you're also thinking that should i scroll past or should i watch the full video should i like it should i follow him and clicked it these are actually the conflicts you are living with and always in your life you are just going to live with the conflicts and it is not a philosophy but it is actually how humans work
+
+---
+
