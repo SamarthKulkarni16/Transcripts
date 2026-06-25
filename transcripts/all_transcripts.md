@@ -809,3 +809,9 @@ Transcript - Thank you for watching.
 
 ---
 
+Title - Nature.
+
+Transcript - Sometimes you just have to pause a bit and look around and you might see something beautiful in nature.
+
+---
+
