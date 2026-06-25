@@ -869,3 +869,9 @@ Transcript - Problems are never solved. They are just upgraded. Like let's say y
 
 ---
 
+Title - Power Or Excitement.
+
+Transcript - Power or Excitement, which one do you choose because when you start studying and understanding more things you start gaining more control over things but less exciting it becomes like for example let's say you are learning the law of balance and you understand that you get what you give and as you start applying this to your life and your everything you will start noticing that everything that you are receiving is the reaction of your past actions and then you start knowing things and you get more control as that you can give whatever you want and just have it but less exciting it becomes that you know what is going on and you can predict what is going to happen to you and so it just kills all excitement but gives you more power. So you are going to choose. You want excitement or control comment down your opinion and subscribe for more and see you.
+
+---
+
