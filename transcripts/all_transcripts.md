@@ -1253,3 +1253,9 @@ Transcript - When life collapse, don't focus on fixing your life, just focus on 
 
 ---
 
+Title - When Life Gets Worse......
+
+Transcript - When life gets worse, then the self development is the damage control.
+
+---
+
