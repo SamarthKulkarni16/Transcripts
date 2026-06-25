@@ -1049,3 +1049,9 @@ Transcript - The reason we like people who are similar to us is a deeper reason 
 
 ---
 
+Title - The Signal Of Overthinking.
+
+Transcript - overthinking is never a problem whenever you just overthink then just remember that you are thinking so much about that thing because you deeply care about it
+
+---
+
