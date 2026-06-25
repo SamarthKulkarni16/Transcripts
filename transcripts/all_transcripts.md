@@ -989,3 +989,9 @@ Transcript - No one in the world got better by receiving advice and those people
 
 ---
 
+Title - Stop Swinging In Middle.
+
+Transcript - I'm looking for you, but I'm disappearing anyway
+
+---
+
