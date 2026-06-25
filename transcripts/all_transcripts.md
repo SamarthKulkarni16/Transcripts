@@ -1205,3 +1205,9 @@ Transcript - don't just understand things but also use it because there are mill
 
 ---
 
+Title - Use Your Procrastination To Your Advantage.
+
+Transcript - Use your procrastination to your advantage in these three steps. So step one, just find something to procrastinate and it can be anything which you are going to do now or later. For me, it's something like making a video and you have many of them. Then step two, find its replacement which is a task which is not repetitive. For example, it can be like cleaning your desk or something or organizing your task and anything. And step three, just do what you decided. And in this way, you can just use your procrastination and you will feel better at the end of the day that you did something better. And follow for more and see you.
+
+---
+
