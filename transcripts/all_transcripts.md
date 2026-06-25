@@ -1415,3 +1415,9 @@ Transcript - Today I read one of the best lines in my life which was from Zen te
 
 ---
 
+Title - use kaizen.
+
+Transcript - one of the things that helped me in my life was Kaizen and I actually have it on my wall and it is very beautiful and very useful and powerful thing so it is basically like when we do something we just go in the flow and we do the thing and we keep repeating repeating repeating but very few times we get better or we can actually say that I am better or improving something and you are just stuck in that line so Kaizen helps you to get better and it is like Japanese technique and I really like it and I used it in many areas of my life so it basically says that first try and apply then review and reflect and then plan and improve so let's say you are learning dance so you should first try and apply so if there is dance move you should just try to do it and then you should review and reflect and then you should try and apply and then you should reflect so you can record your video dancing and you can look at it and and then you should plan to improve you can say that I can add this little movement so it will be like better and you can just then try and apply and you can record your video again and you do this again again again and you do this in circle and then you can really improve in really less time and you can be really better so yeah see you
+
+---
+
