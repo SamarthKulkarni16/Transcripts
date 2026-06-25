@@ -1229,3 +1229,9 @@ Transcript - 🎵
 
 ---
 
+Title - What Do You Think_(2)
+
+Transcript - Your problem isn't your problem, it's the way you're looking at it.
+
+---
+
