@@ -1067,3 +1067,9 @@ Transcript - Everything is survival. Fear is threat to survive. It's jealousy be
 
 ---
 
+Title - They Will.(1)
+
+Transcript - If you want someone to stay in your life forever, then they will stay forever just either as a relation or as a story, but they will stay.
+
+---
+
