@@ -1091,3 +1091,9 @@ Transcript - The 24 hours you get every day is your time capital.
 
 ---
 
+Title - Try Free & Good Stuff.
+
+Transcript - If there is something which is free and you know it's good for you then you should 100% try it and there are many examples like waking up early or staying up late, working hard or stretching, doing cardio exercises and there are many things which you can just try like meditation or etc and it will improve you and even if you didn't feel good after doing that then you can just drop it in prison for 2 or 3 hours and if you think where you can find these things then follow these channels because my most of the channel is based on giving you guys 3 actionable steps which you can try and apply and then if you like it you can just keep it. So follow for more and see you soon.
+
+---
+
