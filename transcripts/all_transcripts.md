@@ -1367,3 +1367,9 @@ Transcript - You are only as good as what you did today and this is very importa
 
 ---
 
+Title - You Don_t Get What You Give.
+
+Transcript - You don't get what you give but you receive what they receive. And the best example will be Jesus Christ. That he gave every best things like love, wisdom, knowledge. He gave the bestest of the bestest. But he was tortured not because he gave bad things. Like you can't say that. But he was treated that way because the receivers was not like that. The people wanted control and power and the lies and just to spread the bad things on community. And they didn't receive it as a good thing. And so just the things happened. And if you want to get best things then it just don't matter if you are just giving good. But the other best thing you can do is start becoming a better receiver. So you will just no matter what people give you in your life. Whether it's bad things or good things. If you just receive it as a good which you can just do by changing your perspectives. Everything will just change. So do this and follow for more and see you.
+
+---
+
