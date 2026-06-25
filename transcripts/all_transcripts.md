@@ -1043,3 +1043,9 @@ Transcript - the real cheat code to get success which actually works is sacrific
 
 ---
 
+Title - The Reason We Like People Who Are Like Us.
+
+Transcript - The reason we like people who are similar to us is a deeper reason and which is actually very simple. It comes from the survival mechanism and it is basically because that when you like something to do and someone other like something to do as well and you both like to do the same thing then there is a less friction in your conversation. So whenever you talk whenever you do something then you are just agreeing on same thing. So there is less friction less energy used and because our brain is just designed to use as less energy as possible to help us survive this thing is just helping us to survive. It might sound boring but it's
+
+---
+
