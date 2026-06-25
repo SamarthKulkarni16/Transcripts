@@ -893,3 +893,9 @@ Transcript - Everyone have goals like it can be as small as daily goals and it c
 
 ---
 
+Title - Purchasing Rule.
+
+Transcript - whenever you're buying something just remember one thing that never buy a depreciating asset out of borrowed money so whether it's a furniture or a vehicle anything just don't buy it out of borrowed money and the borrowed money may just means that you are paying either loan emi credit cards anything like that because it is not going to benefit you at all you can only buy appreciating asset which will be increased in the upcoming time and you will get the financial benefit so if it's a depreciating asset which will just lose its value as it becomes older then it's not the point to get it on the borrowed money and if you really want something that is depreciating asset but you want it like a furniture or vehicle just try to save up money as fast as you can and just buy the whole thing in cash and you might get some cash backs and rewards you so try this and see
+
+---
+
