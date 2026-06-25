@@ -1331,3 +1331,9 @@ Transcript - So, I just turned 16 and decided to make a video of what I learned 
 
 ---
 
+Title - Yesterday
+
+Transcript - Yesterday you could have done it Yesterday you would have done it And yesterday you should have done it But just forget everything Go and do it now
+
+---
+
