@@ -1277,3 +1277,9 @@ Transcript - if you could have saved it then learn from it and if not just forge
 
 ---
 
+Title - When You Are Tired But You Have To Work........
+
+Transcript - when you are tired but you have to work then you can either sleep or work but just don't do any third thing in that place and you know what i mean and yeah see
+
+---
+
