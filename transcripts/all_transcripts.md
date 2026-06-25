@@ -1145,3 +1145,9 @@ Transcript - There are two types of people. First, who can control their anger a
 
 ---
 
+Title - Use It Instead Of Getting Used By It.
+
+Transcript - Whatever you have in your life, you are either using it or getting used by it. So think of it.
+
+---
+
