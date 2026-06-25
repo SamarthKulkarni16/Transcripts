@@ -1187,3 +1187,9 @@ Transcript - They said it's your fault, so I just asked what it means and fixed 
 
 ---
 
+Title - Use These As A Bookmark.
+
+Transcript - When you are reading a physical book, you should have pen, pencil or highlighter as a bookmark because when I started reading, I was using a feather, I found this one, ground random state and I was using this feather and many other feathers to use it as a bookmark but the issue was that I couldn't highlight what is important and what points I like and what are the lines which I can remember then after that I started using a pencil as a highlighter and now I can just bracket all the important things or underline it and when I am reading it the next time, I can just look at it and I can remember that are the key points I should get from the book so when you are reading a physical book, just have one of these three things as a bookmark and yeah, see you Captions by GetTranscribed.com
+
+---
+
