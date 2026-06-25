@@ -1007,3 +1007,9 @@ Transcript - Your life is structured but is it optimized because there might be 
 
 ---
 
+Title - Substitute For Focusing On Present
+
+Transcript - Focusing on present is really hard so I found a substitute which is little easier and it's going to work like that. So most people just focus on the past and the future but it's just going to give you anxiety and pressure and all the past memories are not going to do anything in your present and all the future plans might work they are good but it still sometimes give you problems and anxiety. So if you want a calm and happy life then focusing on present is the best but it is the hardest so what you can do instead is you can focus on today and it is easier because you have a timeline where you can think that what you had did what you are going to do and what you are doing today. So the best thing you can do is just whenever you wake up just think of it that nothing past matters and no future matters whatever your goals for today are just accomplish them and just focus on them. And forget all the old memories and forget everything and you can just focus on today and plan for the future some things that you are going to do tomorrow or something but mostly you are going to focus on today and this will really let the burden go like I tried it myself and it feels really lighter and it feels really better so try it and see.
+
+---
+
