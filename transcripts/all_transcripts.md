@@ -1319,3 +1319,9 @@ Transcript - I read an article which said that there are people who suffered a l
 
 ---
 
+Title - Why You Suffer A Lot............
+
+Transcript - Why others get things so easily and you have to suffer a lot for them? And if you are the one who thinks that way like me, then just remember one thing that if I give you a knife and said this is the sharpest knife in the world then you will not try to cut vegetables with it. You will try to cut rocks to see its true power. And if you will get it harder and harder things to cut, to see how it works. And same goes for you. Even if you can do easy things like the knife can cut vegetables very easily your life will still keep getting harder and harder and you will become better and this is your chance to prove your excellence. So if this is happening to you, just keep going. Don't stop. And yeah, see you.
+
+---
+
