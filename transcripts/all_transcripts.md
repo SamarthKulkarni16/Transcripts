@@ -1001,3 +1001,9 @@ Transcript - Stop swinging. Like many things in our life are like that circus ga
 
 ---
 
+Title - Structured Is Not Equal To Optimized.
+
+Transcript - Your life is structured but is it optimized because there might be something that is not very important and you are just keep holding it like the arguments and things and these are just causing it to fall like this brick which is something important but it is just disturbing so best thing you can do is just to remove it and there might be useful conflicts like for example you are going to gym every day and which is very good conflict so what you have to do is just keep the old conflicts which are useful and those which are not useful you just have to substitute them with something useful or otherwise the old ones will take the place.
+
+---
+
