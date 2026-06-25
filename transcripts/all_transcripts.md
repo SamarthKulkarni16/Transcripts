@@ -1349,3 +1349,9 @@ Transcript - if people call you childish then this is just because they can't ad
 
 ---
 
+Title - You Are Lazy.
+
+Transcript - If people call you lazy, then you should move, not to prove them wrong, but to just grow.
+
+---
+
