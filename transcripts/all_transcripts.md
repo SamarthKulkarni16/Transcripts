@@ -1037,3 +1037,9 @@ Transcript - Don't worry, this video is not like other videos where you see peop
 
 ---
 
+Title - The Real Cheat Code To Success.
+
+Transcript - the real cheat code to get success which actually works is sacrifice that you can do sacrifices and get things faster but it takes many things like giving up things that you like and things like it and it can be done in any because it follows the law of balance like if you want better health go sacrifice junk food if you want more time and you're more control over your life you can sacrifice friends just break friendship with them and you can just gain more time and more energy and more focus on yourself rather than what they will think and etc and you can sacrifice your tv shows and your anime and everything to get more time and focus and you can put those things into learning something doing something and making money and you can get the value and you can become rich like you can do whatever you want if you just focus on giving up giving things and sacrificing things and then getting it and i found it the like real cheat code other things like i tried many things it doesn't help but this thing helps because you give many things and your burden goes decreasing and you will become better for example all the monks you see who are training and who are just living the best life you can imagine they sacrificed a lot of things they sacrificed their relationships and their whole life and just everything they are just focused on doing one thing and that's why they are just happy and just living their life in their best way so if you want things to get better just do as many sacrifices as possible and follow for more and see you
+
+---
+
