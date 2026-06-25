@@ -1289,3 +1289,9 @@ Transcript - When you feel any high emotion like anger, happiness, sad, whatever
 
 ---
 
+Title - When You Regret Your Inactions....... #motivati
+
+Transcript - when you do nothing the time flies by and when you remember that you have done nothing and then you start regretting and the time still flies by while you are regretting so what you need to do is just do something write something post something do stretching like whatever just take one action and it will help you break the loop of just regretting and not doing and regretting and just wasting the whole time so just one action will define everything so just go now do something and yeah see
+
+---
+
