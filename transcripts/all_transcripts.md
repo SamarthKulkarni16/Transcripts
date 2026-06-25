@@ -827,3 +827,9 @@ Transcript - This is how the no problem state looks like in everyone's brain but
 
 ---
 
+Title - Nothing Happens.
+
+Transcript - Nothing happens. You either do something or you don't something but nothing just happens in the world. Like let's say for example that something bad happens to you and it happens again and again and again and then you might ask someone that why it only happens to me and you know that there is no reason that it just happened to you if you haven't done anything which means that there is something that is causing it to happen which is done by you even if you don't know it but it is done by you. Another example will be that if something good happens to you again and again then your friends might ask that why all good things happen to you but you also know that it doesn't happen actually and you are actually doing something it to happen and even if you don't know what you are doing you are doing something which is causing the reaction because your action caused the reaction. And so if something is bad happening to you then don't think why this is happening to you. Don't think why this is happening to you. Don't think why this happens to me and just answer that question if you are thinking and then you will get your answer and yeah see you.
+
+---
+
