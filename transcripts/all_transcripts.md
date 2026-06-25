@@ -1379,3 +1379,9 @@ Transcript - If people say you are gay, then that's a great news because that wa
 
 ---
 
+Title - You Have Everything Already.
+
+Transcript - you have everything but not in just the form in which you want so let's say you want a great body so like you want really big muscles and everything already you have them just in different form which is the form of time energy consistency focus etc and if you are willing to give these things so let's say you are going to gym consistently and you are giving it your time which is very valuable thing and you are focusing on it and you're consistent then you will have it but you have to give something in order to get something that's how the balance works and that's how universe works right let's say you want a million dollars so you have them already in the form of focus time value and consistency like these are like common things but most people what they do is they just want to get the thing and they think that they have enough time for the thing but they never actually put in those efforts and put in those things which are required to withdraw this this is like an ATM machine in which you can have everything you want you just have to put in your card which is your efforts and time energy etc in one form to get it in another form slightly you want better relationship she will already have that relationship in the form of time and if you give your time to your relationships then you will have it this is the common thing so whatever you want in life just focus on what it requires you to give so that you can get those things and yeah see you
+
+---
+
