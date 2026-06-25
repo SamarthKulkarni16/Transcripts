@@ -965,3 +965,9 @@ Transcript - I see everyone falling in this trap and I fell for it too and which
 
 ---
 
+Title - Stay Safe.(1)
+
+Transcript - stay away from weakness flexers people who just flex their weakness just like someone saying that bro I can't help but watching anime or someone say bro like eating sweet is my weak point or something like that then that's a problem and that's a weakness but they show it to you as it is a strength that I can't help but watch anime or something and these people are just not going to do anything in their life except they change that thing so the best thing you can do is just get away from them stop flexing your weaknesses and just do whatever you want in life so follow for more and see you
+
+---
+
