@@ -839,3 +839,9 @@ Transcript - Whatever you do is not random. You see you eat to solve hunger prob
 
 ---
 
+Title - Nothing.
+
+Transcript - what if there are no problems if there are no problems then there will be no want then you won't take any action because you don't want anything and then there will be no upgrades and there will be just nothing and basically you're dead
+
+---
+
