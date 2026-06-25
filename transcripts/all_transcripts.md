@@ -1307,3 +1307,9 @@ Transcript - jealousy is one of the emotions that everyone have but why that we 
 
 ---
 
+Title - Why Fat Exists_
+
+Transcript - Then the second thing is why it exists and the reason your fat exists is because your body just stores your energy for a long time.
+
+---
+
