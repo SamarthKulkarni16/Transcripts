@@ -1199,3 +1199,9 @@ Transcript - You don't have to learn more to get better, you just need to use wh
 
 ---
 
+Title - Use What You Learn.
+
+Transcript - don't just understand things but also use it because there are millions and millions of people consuming self-help content and reading books and attending seminars webinars doing everything and they are still stuck in their life because they are doing nothing about it they are just consuming things and here is the harsh reality that if there is a guy who is just consuming content playing game and just watching tiktok all day and there is you who is actually trying to be better but just consuming the self-help content without using it then i'm sorry but you are on the same path so if you want to change your life whenever you learn something on content books anything like that just try to apply it in your life and make it better and if you like subscribe and see you
+
+---
+
