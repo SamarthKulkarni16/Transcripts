@@ -1283,3 +1283,9 @@ Transcript - when you are tired but you have to work then you can either sleep o
 
 ---
 
+Title - When You Feel High Emotion.....      #emotions
+
+Transcript - When you feel any high emotion like anger, happiness, sad, whatever then just don't try to get rid of it and actually enjoy the moment and it will just pass away.
+
+---
+
