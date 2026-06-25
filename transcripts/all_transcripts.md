@@ -1157,3 +1157,9 @@ Transcript - TEMNAYA NOCH
 
 ---
 
+Title - Use Of Anger #anger #perspective
+
+Transcript - don't get rid of your anger because when you get angry your body just feels energy and you become so much energetic that you can actually use that power do something important like working out and some and things and you can use it as a nitro booster for yourself and just boost your life to get what you want faster and better so if you want to know how just comment down below anger and I will send you the link
+
+---
+
