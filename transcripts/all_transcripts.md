@@ -845,3 +845,9 @@ Transcript - what if there are no problems if there are no problems then there w
 
 ---
 
+Title - One Of The Most Important Life Lessons Everyone
+
+Transcript - so one of the most important lessons I learned in my life is first is the hardest and write it down or stick it on a wall do whatever it is but remember the sentence first is going to be the hardest whether it is talking to a girl or making of your first video video or running your first marathon or closing your first deal it can be anything like it can be giving first public speech first is going to the hardest then when you do it second time it becomes twice as easier than you do third time and it becomes thrice easier and it becomes so easy that you can do it flawlessly but the first shot is going to be the hardest and that's why many people don't take it but I believe in you so take your first shot don't get the tension of what is going to happen or anything just do the first thing and you will know what I mean you will know what I mean so yeah see you
+
+---
+
