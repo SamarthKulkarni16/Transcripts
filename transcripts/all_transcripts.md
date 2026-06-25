@@ -821,3 +821,9 @@ Transcript - Life without problems is the emptiness and when you are bored then 
 
 ---
 
+Title - No Problem State.
+
+Transcript - This is how the no problem state looks like in everyone's brain but the only true form of no problem looks something like this Yeah, the death We are just wired to solve problems and no one and every single person on the earth is solving something
+
+---
+
