@@ -1019,3 +1019,9 @@ Transcript - Most people just end their conversation where it should actually st
 
 ---
 
+Title - That_s It.
+
+Transcript - there are only two types of problems that you are actually solving always first is active problems like you are working out you are eating you are working on your goals future whatever and second type is just passive problem solving like you are breathing you are hearing something you are thinking and you are doing this to avoid problems like you are breathing because you don't want to die you are hearing so a random thing doesn't happen and you don't know and you are doing everything to just solve problems and just get rid of problems this is not random this is everything is based on just problem solving
+
+---
+
