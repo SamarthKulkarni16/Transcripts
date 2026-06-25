@@ -1247,3 +1247,9 @@ Transcript - Here is what is a problem the want you have to get anything in a pa
 
 ---
 
+Title - When Life Collapse......
+
+Transcript - When life collapse, don't focus on fixing your life, just focus on fixing yourself.
+
+---
+
