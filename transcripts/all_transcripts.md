@@ -863,3 +863,9 @@ Transcript - One more shot, cause
 
 ---
 
+Title - Please Understand This.
+
+Transcript - Problems are never solved. They are just upgraded. Like let's say you want to get looks maxing because this is always the trend. So you have very different options. You can go to muscles, you can look at your hygiene, you can check out different products which are available in the market. But let's say that you chose to gain the muscles. Then what happens next is you have more questions like when to workout, when to sleep, how much to eat, what to eat, how much protein to gain. And after you have solved these questions, you have solved all these questions. Then you upgrade, you start getting body, you start getting physique. But then more questions are like how to get more muscles, how to get better muscles. And then you just focus on progressive overloads. You focus on your flexibility and you start to become better. And once you have like great muscles, you look shredded, you look jacked, you look absolutely good. Then you focus on how can I create brand deals? How can I make content on it? How can I make money on it? And the point here is that you will have problems. You have problems now and you will have problems in the future. But the only thing that is changing is the level of problems. So when you are focusing on looks, you are very beginner. But this is the foundational. And then you upgrade, upgrade, upgrade. And this is where you just get better. And you may get problems after that too. You may get into a lawsuit, you may get into anything like that. But the fun. But the whole fact here is same that you are never getting out of any problem. You are just upgrading your problems.
+
+---
+
