@@ -1271,3 +1271,9 @@ Transcript - When someone leaves you, they also leave the old conflicts like wha
 
 ---
 
+Title - When They Say, _You Ruined Everything_
+
+Transcript - if you could have saved it then learn from it and if not just forget it stop just bleeding eyes
+
+---
+
