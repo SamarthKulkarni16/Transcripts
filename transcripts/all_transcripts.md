@@ -1403,3 +1403,9 @@ Transcript - Your environment is your reflection, so just change the source.
 
 ---
 
+Title - Your Idea Is Not Practical.
+
+Transcript - If people say you that your idea is not practical, then congratulations, you invented something.
+
+---
+
