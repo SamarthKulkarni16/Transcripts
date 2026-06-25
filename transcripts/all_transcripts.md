@@ -1241,3 +1241,9 @@ Transcript - What if your problems are actually solutions for something that you
 
 ---
 
+Title - What Is Problem_
+
+Transcript - Here is what is a problem the want you have to get anything in a particular way and the reality that it is not in that particular way the gap you can see right here is where everything starts is where all the problems are is where all the conflicts are and every single thing you see that is an issue everything lies in this gap.
+
+---
+
