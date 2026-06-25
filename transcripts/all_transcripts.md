@@ -851,3 +851,9 @@ Transcript - so one of the most important lessons I learned in my life is first 
 
 ---
 
+Title - Pain Is Everywhere. Consistency Is Rare.
+
+Transcript - 🎵
+
+---
+
