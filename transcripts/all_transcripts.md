@@ -1079,3 +1079,9 @@ Transcript - 🎵
 
 ---
 
+Title - This Is Not Laziness.
+
+Transcript - If you do other things like scrolling, watching TV or whatever instead of working, then this does not mean that you are lazy. But what it actually means is the work you are going to do is very uncomfortable and hard to do and that's why you choose the easy thing. What you need to do is actually very simple. Just focus on how you can decrease the friction of your work by putting in systems, by putting in frameworks or whatever you can do. Ask chat GPT what you can do. And if you want, you can just tell me in the comments and I will help you to understand how you can just decrease the friction in your work so you will work instead of doing scrolling and things.
+
+---
+
