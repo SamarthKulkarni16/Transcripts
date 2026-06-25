@@ -905,3 +905,9 @@ Transcript - if you want to get rid of any bad habit in 2026 what i recommend is
 
 ---
 
+Title - Realized It_(1)
+
+Transcript - Thank you for watching!
+
+---
+
