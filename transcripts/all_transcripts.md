@@ -1163,3 +1163,9 @@ Transcript - don't get rid of your anger because when you get angry your body ju
 
 ---
 
+Title - Use Or Get Used.
+
+Transcript - How to know if you are using something or getting used by it is very simple. Just you have to look at the thing and ask the question that is it helping me to achieve my plan and if the answer is yes then you are using it and it is helping you but if the answer is no that it's not helping you in any way or it's just taking you backwards then it just means that it is using you and you are not using it. So just drop it and whatever you are using just keep it up and you will see the success. See you.
+
+---
+
