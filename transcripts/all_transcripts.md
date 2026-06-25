@@ -1097,3 +1097,9 @@ Transcript - If there is something which is free and you know it's good for you 
 
 ---
 
+Title - Try Hard.
+
+Transcript - If trying header will actually work then just try it and if doesn't work then just drop it. It's very simple.
+
+---
+
