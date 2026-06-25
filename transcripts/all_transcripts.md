@@ -1385,3 +1385,9 @@ Transcript - you have everything but not in just the form in which you want so l
 
 ---
 
+Title - You Should Deserve It.
+
+Transcript - if you want something then having the desperate spirit is good but you should do so much effort that you feel that you deserve it and then you will get it like let's say if you go to a bodybuilder who have a really big muscles and have a really cool physique and you go to him and you say bro you are so lucky you got the physique then he will tell you that i am doing this for a year for a decade now and i am eating healthy food for a decade and i never skipped a day so that's why i have this physics i deserve it so of course i have it and this will come in any category you go to entrepreneur or anyone who is successful in their category then they will tell you that of course they deserve it that they would solve so much work for it like this happened to me when in the 10th class i got 90 percent which was a very good percentage then my friend came to me and they were saying that bro you are so lucky you got so much marks but i was like no i did so much work like you you i was waking up at 5 a.m every day and studying for eight hours so of course i have it there is no doubt on it i couldn't expect for less than that and this is what you need to get what you want so if you want a million dollar then you have to do so much work that it will feel that of course i have a million dollar it's not a big deal so even if whatever you want you just have to do so much work for it that you will deserve it and then you will get it so try this and see you next time you
+
+---
+
