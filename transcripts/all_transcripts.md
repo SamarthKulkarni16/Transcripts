@@ -1409,3 +1409,9 @@ Transcript - If people say you that your idea is not practical, then congratulat
 
 ---
 
+Title - Zen Teaching.
+
+Transcript - Today I read one of the best lines in my life which was from Zen teachings that pain is inevitable but the suffering is optional and this just completely changes change the perspective because everything that happens in your life the pain or the pain and suffering pain is going to be there it was there it is there and it will be there but are you choosing to suffer from it or just letting it as it is and this is very beautiful thing because we choose to suffer let's say our friend is angry on you then that pain is inevitable he is just angry but if you are just keep thinking of it and just blaming yourself this and that then you are choosing the suffering and the best thing you can do is just talk to them or just leave him whatever you want and suffering is very optional thing because it is their fault what will they do they just leave you their choice and they do it.
+
+---
+
