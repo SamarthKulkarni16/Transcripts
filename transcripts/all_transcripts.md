@@ -935,3 +935,9 @@ Transcript - Bigger the sacrifice is, bigger the reward is, so whatever you want
 
 ---
 
+Title - Solution To Every Problem.
+
+Transcript - Every problem have their solution in these four questions which no one talks about. What is it? Why it exists? What makes it better? And what makes it worse? That's it.
+
+---
+
