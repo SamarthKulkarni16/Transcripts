@@ -881,3 +881,9 @@ Transcript - One of the best mindset shifts that I had that you can have too is 
 
 ---
 
+Title - Problems & Problems.
+
+Transcript - The best thing is actually never getting out of the problem and it is true because you can never get out of problem and even if you get out of a problem then you will encounter a different problem. So if you are just stuck in life where you are not sure of what to do or why is this happening or anything just get into any conflict you can and just a good conflict like getting in better shape and then there will be lot of problems like how to go to gym, what exercise to do, how to recover etc. And you will get busy in that important thing instead of other bullshit things and you will just focus on important conflicts rather than other conflicts.
+
+---
+
