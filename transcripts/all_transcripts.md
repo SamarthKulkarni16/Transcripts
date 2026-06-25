@@ -833,3 +833,9 @@ Transcript - Nothing happens. You either do something or you don't something but
 
 ---
 
+Title - Nothing Is Random.
+
+Transcript - Whatever you do is not random. You see you eat to solve hunger problem. You work to solve future problems. You are watching TV to cure boredom. See the pattern everything you are doing is just solving a problem. So nothing is random.
+
+---
+
