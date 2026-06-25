@@ -797,3 +797,9 @@ Transcript - and this never ends like you want something so you take action like
 
 ---
 
+Title - Most Coomonly Non Understood Advice.
+
+Transcript - It is the most common advice, but most people don't know what it actually means. And it actually means that finding something, finding which are your own conflicts and which are conflicts that you are inherited, inherited from your family, from your society, from your culture and owning your own journey does not mean that just adding new things and this and that. But it simply means that eliminating the unnecessary conflict and staying in your own conflicts long enough that you find a way out.
+
+---
+
