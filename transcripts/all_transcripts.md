@@ -947,3 +947,9 @@ Transcript - Once I understood that the only sentence which matters is just that
 
 ---
 
+Title - Sorry Guys.
+
+Transcript - Hello, what's up? I'm Lera Sof
+
+---
+
