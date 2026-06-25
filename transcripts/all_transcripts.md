@@ -1025,3 +1025,9 @@ Transcript - there are only two types of problems that you are actually solving 
 
 ---
 
+Title - The Old Genes Kicks In.
+
+Transcript - you have the old genes and me too and that's why we fear the fear of rejection the fear of loneliness and it is because when we were living in the forest the only thing that were in our mind was that if we get alone then it is easier for a predator to just hunt us but it is not the case right now but still we think that way because our brain is just wired that way and it is not something that we can change immediately but if we understand this then things may change a lot you
+
+---
+
