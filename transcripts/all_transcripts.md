@@ -1211,3 +1211,9 @@ Transcript - Use your procrastination to your advantage in these three steps. So
 
 ---
 
+Title - Visualize Your Progress.
+
+Transcript - if you don't know what to improve in your life then having a radar chart will actually help and you might have seen it in many games where they show your stats in that pattern so you know which is your weakness and which is your strength and what you should work on and in real life it works really great because you can just visualize what is going on your life so you can go for health relationship money whatever you want and just look at where you are going good and where you are lacking so you can just focus on that particular area and you can just grow there and you can just put it on a wall or just have it as wallpaper or something which will give you a reminder of you have to work on that thing and it will help so just try this and see
+
+---
+
