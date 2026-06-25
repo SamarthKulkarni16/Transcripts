@@ -971,3 +971,9 @@ Transcript - stay away from weakness flexers people who just flex their weakness
 
 ---
 
+Title - Stay Safe.
+
+Transcript - Get away from problem flexers because these are just people who flex their problems like this is something superpower or something like there are people who will tell you that when they go to shopping that bro if i go to shopping i don't know what to do and i just get confused and i just go hang around there and i just came without doing anything and this is actually a problem but they flex it like it's a superpower or something they are special and the problem with being with that people is that they will never get anything in their life and they will not let you get anything in your life so best thing you can do is just get away from them and stay safe and see
+
+---
+
