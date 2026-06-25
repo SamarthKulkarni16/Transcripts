@@ -1127,3 +1127,9 @@ Transcript - 🎵
 
 ---
 
+Title - Ultimate Task Guide.
+
+Transcript - here are the ways to complete every task so there are two types of tasks first is one-time task which you just need to do once and the best thing you can do is just do it now like that's that's the best thing you can do because you will save up time and you have many one-time tasks i know and you should just start doing it and second type of task is repetitive tasks which come continuously so there are actually three ways you can do and first one is my favorite which is just to delete the task like this is the best thing you can do because there are many tasks that really you are not required to do but you are just doing it for something reason and getting dopamine or something which you can just completely eliminate and second thing you can do which is second best way you can do it is using ai automations which are currently going viral and everything you can just learn about them on youtube and third thing if you can't do up the above two then you have to do the third thing which is doing keep doing it repetitively by yourself and this is how you can just do it so follow for more and see
+
+---
+
