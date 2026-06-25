@@ -1169,3 +1169,9 @@ Transcript - How to know if you are using something or getting used by it is ver
 
 ---
 
+Title - Use Other_s Opinions To Your Advantage.
+
+Transcript - you shouldn't ignore other people's opinion and just learn to use it to your advantage because people say things because of a reason why people just say you should just ignore others opinions is most of the time they are just talking useless things but sometimes they might actually tell you something that you should actually do in your life and it might help you so if you want to become better then whatever people say just think that is there something you can really do and make your life better if yes then do it if no just ignore it and keep going
+
+---
+
