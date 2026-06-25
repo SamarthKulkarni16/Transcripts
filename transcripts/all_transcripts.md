@@ -959,3 +959,9 @@ Transcript - Comparing yourself to other people is the fastest way to get succes
 
 ---
 
+Title - Start Small Scale Big.
+
+Transcript - I see everyone falling in this trap and I fell for it too and which was like everyone just want to achieve big things without doing the small things like everyone wants to become a millionaire but nobody wants to make their first ten dollars hundred dollars thousand dollars like nobody cares just they just want to make that million dollar but it's not possible right because everyone is required to go from ten dollars in order to make hundred thousand dollars million dollars whatever and it's like running a race and you want to finish it but you don't want to walk there or run there you just want to get that the finish line and this is not possible because like you have to take the path that most people don't even want the path they just want to get teleported to there but it's not like technology right now and so this is what most people want to do so whatever you're doing just focus on starting small so let's say you are reaching out for your business so just start small decide to get the goal of ten people every day twenty people every day and increase as it becomes easier so it can you can just reach your whatever goal like dreaming big is really good thing but direct going there is not possible you have to take the small steps in order to get there so whatever your goal is just start small and scale big and you will start seeing the results so yeah see you
+
+---
+
