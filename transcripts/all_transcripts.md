@@ -815,3 +815,9 @@ Transcript - Sometimes you just have to pause a bit and look around and you migh
 
 ---
 
+Title - No Problem = Problem.
+
+Transcript - Life without problems is the emptiness and when you are bored then your brain is literally saying you that there is no problem to solve and this is the big problem. So whenever you get bored what you do is you do nothing sometimes and you just feel off then you feel bored then you feel anxious and then all the depression and all the bullshit comes from it. So if you don't want this whenever you get bored just get into any conflict and it doesn't have to be crazy or it doesn't have to bad just get into good conflicts like what you are going to do next you're planning something you're watching something self-help just get into a good conflict and keep your brain busy.
+
+---
+
