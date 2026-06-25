@@ -1373,3 +1373,9 @@ Transcript - You don't get what you give but you receive what they receive. And 
 
 ---
 
+Title - You Have Changed.
+
+Transcript - If people say you are gay, then that's a great news because that was the whole point.
+
+---
+
