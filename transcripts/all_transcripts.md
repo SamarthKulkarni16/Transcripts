@@ -1235,3 +1235,9 @@ Transcript - Your problem isn't your problem, it's the way you're looking at it.
 
 ---
 
+Title - What Do You Think_
+
+Transcript - What if your problems are actually solutions for something that you are not looking at?
+
+---
+
