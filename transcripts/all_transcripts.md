@@ -1193,3 +1193,9 @@ Transcript - When you are reading a physical book, you should have pen, pencil o
 
 ---
 
+Title - Use What You Learn.(1)
+
+Transcript - You don't have to learn more to get better, you just need to use what you have learned to get better. So do it and see.
+
+---
+
