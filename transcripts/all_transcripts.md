@@ -301,7 +301,7 @@ Transcript - When you are trying to get rid of something in your life, finding i
 
 Title - First Video
 
-Transcript - Hi, it's Amartya Kulkarni from India and from today we are going to start our channel and start uploading videos. I am going to upload videos about my life, what I did, what mistakes I do, what I learnt and just we are going to grow together. So yeah, see you.
+Transcript - Hi, it's Samarth Kulkarni from India and from today we are going to start our channel and start uploading videos. I am going to upload videos about my life, what I did, what mistakes I do, what I learnt and just we are going to grow together. So yeah, see you.
 
 ---
 
